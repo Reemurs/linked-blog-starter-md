@@ -1783,7 +1783,7 @@ Important events:
 - Prior to His ascension: Luke 24:50-53 (bless disciples)
 - For His followers: John 17
 - The prayer Jesus taught is recorded in Matthew 6:9-13
-#### Types
+#### Kinds
 > With every prayer and request, pray at all times in the Spirit, and with this in view, be alert with all perseverance and every request for all the saints, (Ephesians 6:18)
 ##### 3 lvls
 > Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks it will be opened. (Matthew 7:7-8)
@@ -1805,3 +1805,22 @@ Important events:
 > 'And he said to me, “Daniel, you who are treasured, understand the words that I am about to tell you and stand at your place, for I have now been sent to you.” And when he had spoken this word to me, I stood up trembling. Then he said to me, “Do not be afraid, Daniel, for from the first day that you set your heart on understanding this and on humbling yourself before your God, your words were heard, and I have come in response to your words. But the prince of the kingdom of Persia was standing in my way for twenty-one days; then behold, Michael, one of the chief princes, came to help me, for I had been left there with the kings of Persia.' (Daniel 10:11-13)
 - Daniel got an answer through his persistence, even though the devil delayed the answer to his prayer
 ##### Types
+###### Worship & Praise
+>“¶Enter His gates with thanksgiving, And His courtyards with praise. Give thanks to Him, bless His name.” (Psalm‬ ‭100‬:‭4)
+
+You enter his presence with:
+- **Worship**: Give honor & devotion
+- **Praise**: thanksgiving; express gratitude for what God is & does
+
+Examples:
+Singing: Psalms 9:2,11; 40:3; Mark 14:26
+Audible praise: Psalms 103:1
+Shouting: Psalms 47:1
+Lifting up of the hands: Psalms 63:4; 134:2; I Timothy 2:8
+Clapping: Psalms 47:1
+Musical instruments: Psalms 150:3-5
+Standing: II Chronicles 20:19 
+Bowing: Psalms 95:6
+Dancing: Psalms 149:3
+Kneeling: Psalms 95:6
+Lying down: Psalms 149:5
