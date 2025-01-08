@@ -1813,7 +1813,7 @@ You enter his presence with:
 - **Praise**: thanksgiving; express gratitude for what God is & does
 
 Examples:
-Singing: Psalms 9:2,11; 40:3; Mark 14:26
+Singing: Psalms 9:2,11; 40:3; Mark 14:26 (hymn, praise not mentioned)
 Audible praise: Psalms 103:1
 Shouting: Psalms 47:1
 Lifting up of the hands: Psalms 63:4; 134:2; I Timothy 2:8
