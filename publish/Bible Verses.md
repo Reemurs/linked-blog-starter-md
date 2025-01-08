@@ -48,3 +48,9 @@ God is just. There is no reason to disagree with his judgement. You are not more
 
 Wisdom #1
 >'The Lord has made Himself known; He has executed judgment. A wicked one is ensnared in the work of his own hands. *Higgaion Selah*' (Psalm 9:16)
+
+The only way to overcome evil is to draw near to the Lord:
+>'Finally, be strong in the Lord and in the strength of His might. Put on the full armor of God, so that you will be able to stand firm against the schemes of the devil. For our struggle is not against flesh and blood, but against the rulers, against the powers, against the world forces of this darkness, against the spiritual forces of wickedness in the heavenly places. Therefore, take up the full armor of God, so that you will be able to resist on the evil day, and having done everything, to stand firm. ' (Ephesians 6:10-13)
+- You are weak alone, but you are strong when you are drawn near to the Lord
+- You cannot rely on the flesh alone to beat evil becuase evil is not just of the flesh, it is directed by spiritual forces (beyons your scope of knowledge/smarts/strength) & only the Lord is qualified to command the battle against them
+- So, the only way to ef
