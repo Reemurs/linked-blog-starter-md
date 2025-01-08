@@ -1814,11 +1814,11 @@ You enter his presence with:
 
 Examples:
 Singing: Psalms 9:2,11; 40:3; Mark 14:26 (hymn, praise not mentioned)
-Audible praise: Psalms 103:1
-Shouting: Psalms 47:1
+Audible praise: Psalms 103:1 (wrong ref)
+Shouting: Psalms 47:1 
 Lifting up of the hands: Psalms 63:4; 134:2; I Timothy 2:8
 Clapping: Psalms 47:1
-Musical instruments: Psalms 150:3-5
+Musical instruments: Psalms 150:3-5 (+ dancing)
 Standing: II Chronicles 20:19 
 Bowing: Psalms 95:6
 Dancing: Psalms 149:3
