@@ -62,5 +62,9 @@ The only way to overcome evil is to draw near to the Lord:
 - share the gospel like God has commanded you to the
 - Remember the Jesus who took upon himself so much pain to save you. Remember his love so you will not so easily betray him for goodies like Judas did
 >in addition to all, taking up the shield of faith with which you will be able to extinguish all the flaming arrows of the evil one. 
-- without faith you cannot do anything else b/c you will not listen to him if you do not believe in him & what he says. You will look for your needs in other places because you do not trust God to meet them. You won't care about him b/c do not have faith in him to be what he is
->And take the helmet of salvation and the sword of the Spirit, which is the word of God. With every prayer and request, pray at all times in the Spirit, and with this in view, be alert with all perseverance and every request for all the saints,' (Ephesians 6:14-18)
+- without faith you cannot do anything else b/c you will not listen to him if you do not believe in him & what he says. You will look for your needs in other places because you do not trust God to meet them. You won't care about him b/c do not have faith that he is who he is (a loving and strong {rebuking} God)
+- Remember that Satan is always throwing flames at you, so never let you guard down & do not let them overwhelm you since who are overcomers in He who overcame the world
+>And take the helmet of salvation and the sword of the Spirit, which is the word of God. 
+- Know who you are, a child of God, so you will not return to the evil you were taken out of like a dog to returning to its own vomit + don't be overwhelmed by evil b/c God will take care of it
+- Listen to the spirit. Do 
+>With every prayer and request, pray at all times in the Spirit, and with this in view, be alert with all perseverance and every request for all the saints,' (Ephesians 6:14-18)
