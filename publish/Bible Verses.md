@@ -17,7 +17,7 @@ We are nothing in comparison to God:
 - One forgets God when they disregard his ways and seek to fulfill their own needs with their own plans (selfish ambition)
 	- They pointlessly search for satisfaction that can only come from him
 	- This is wickedness
-	- They have forgotten that they are only human. That they have no right to depart from the Lord and God will show them that through his power (getting diarrhea when you were living in a pattern of disobedience & deliberately ignoring the voice of God [])
+	- They have forgotten that they are only human. That they have no right to depart from the Lord and God will show them that through his power (getting diarrhea when you were living in a pattern of disobedience & deliberately ignoring the voice of God {not helplessness, but a willful way of living})
 
 Connection b/w obedience, blessing & mercy:
 > 'But the mercy of the Lord is from everlasting to everlasting for those who fear Him, And His justice to the children’s children, To those who keep His covenant And remember His precepts, so as to do them. ¶The Lord has established His throne in the heavens, And His sovereignty rules over all. Bless the Lord , you His angels, Mighty in strength, who perform His word, Obeying the voice of His word! Bless the Lord, all you His angels, You who serve Him, doing His will. Bless the Lord, all you works of His, In all places of His dominion; Bless the Lord, my soul!' (Psalm 103:17-22)
