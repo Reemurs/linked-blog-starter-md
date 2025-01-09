@@ -68,3 +68,6 @@ The only way to overcome evil is to draw near to the Lord:
 - Know who you are, a child of God, so you will not return to the evil you were taken out of like a dog to returning to its own vomit + don't be overwhelmed by evil b/c God will take care of it
 - Listen to the spirit. Do not dismiss or ignore him. He tells what you have to do in order to overcome. Any straying from him is surrendering yourself to evil forces (and letting them {those that hate you and God=everything that is good} do whatever they want w/ you is a horrifying thought).
 >With every prayer and request, pray at all times in the Spirit, and with this in view, be alert with all perseverance and every request for all the saints,' (Ephesians 6:14-18)
+- Pray for the ppl who help spread the gospel (19) so they can be successful in saving more souls
+- Pray to be near to God. It is is strongest resource/tool because you gain & strengthen a direct link to the creator and to the power to do good (The prayer life of soren kinkegard)
+
