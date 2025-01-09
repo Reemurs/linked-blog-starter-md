@@ -87,7 +87,9 @@ Love comes from faith; love that comes from faith will always be pure:
 >'“Therefore, everyone who hears these words of Mine, and acts on them, will be like a wise man who built his house on the rock. And the rain fell and the floods came, and the winds blew and slammed against that house; and yet it did not fall, for it had been founded on the rock. And everyone who hears these words of Mine, and does not act on them, will be like a foolish man who built his house on the sand. And the rain fell and the floods came, and the winds blew and slammed against that house; and it fell—and its collapse was great.”' (Matthew 7:24-27)
 - Be ready for when trouble comes. Survive what brings you turmoil and distress. Obey God.
 
->''for He was teaching them as one who had authority, and not as their scribes.'
+>''for He was teaching them as one who had authority, and not as their scribes.' (Matthew 7:29)
+- Jesus is not justa bunch of written rules. He is a person who has complete authotrity over your life and has the right to tell you what to do.
 
-Matthew 7:29
-https://www.bible.com/bible/2692/MAT.7.29
+>'What is the source of quarrels and conflicts among you? Is the source not your pleasures that wage war in your body’s parts? You lust and do not have, so you commit murder. And you are envious and cannot obtain, so you fight and quarrel. You do not have because you do not ask. You ask and do not receive, because you ask with the wrong motives, so that you may spend what you request on your pleasures. You adulteresses, do you not know that friendship with the world is hostility toward God? Therefore whoever wants to be a friend of the world makes himself an enemy of God. Or do you think that the Scripture says to no purpose, “ He jealously desires the Spirit whom He has made to dwell in us”? But He gives a greater grace. Therefore it says, “God is opposed to the proud , but gives grace to the humble .” Submit therefore to God. But resist the devil, and he will flee from you. Come close to God and He will come close to you. Cleanse your hands, you sinners; and purify your hearts, you double-minded. Be miserable, and mourn, and weep; let your laughter be turned into mourning, and your joy into gloom. Humble yourselves in the presence of the Lord, and He will exalt you.' (James 4:1-10)
+- You are drawn away by lust to be thrust into inner conflicts and quarrels
+- when God does not give you what you want, it is because he knows it is not ri
