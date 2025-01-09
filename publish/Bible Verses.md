@@ -84,4 +84,10 @@ Love comes from faith; love that comes from faith will always be pure:
 - The gate is broad because people are doing what is easy
 - Ex. Troubleshooting is hard, but you do it anyways because starting something that God does not want is more appealing than starting something that is
 - if you act solely based upon what is easy, you will be perished. Seek life.
+>'“Therefore, everyone who hears these words of Mine, and acts on them, will be like a wise man who built his house on the rock. And the rain fell and the floods came, and the winds blew and slammed against that house; and yet it did not fall, for it had been founded on the rock. And everyone who hears these words of Mine, and does not act on them, will be like a foolish man who built his house on the sand. And the rain fell and the floods came, and the winds blew and slammed against that house; and it fell—and its collapse was great.”' (Matthew 7:24-27)
+- Be ready for when trouble comes. Survive what brings you turmoil and distress. Obey God.
 
+>''for He was teaching them as one who had authority, and not as their scribes.'
+
+Matthew 7:29
+https://www.bible.com/bible/2692/MAT.7.29
