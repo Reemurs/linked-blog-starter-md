@@ -78,4 +78,10 @@ Love comes from faith; love that comes from faith will always be pure:
 >'Peace be to the brothers and sisters, and love with faith, from God the Father and the Lord Jesus Christ. Grace be with all those who love our Lord Jesus Christ with incorruptible love.' (Ephesians 6:23-24)
 
 >'“Do not give what is holy to dogs, and do not throw your pearls before pigs, or they will trample them under their feet, and turn and tear you to pieces.' (Matthew 7:6)
-- do not give yourself & work to please unbelievers (dogs) becuase they will not reciprocate (true) affection and they will turn against you in the end because they only have the flesh as a mor
+- do not give yourself & work to please unbelievers (dogs) becuase they will not reciprocate (true) affection and they will turn against (betray) you in the end because they only have the flesh as a moral compass to rely on
+
+>'“Enter through the narrow gate; for the gate is wide and the way is broad that leads to destruction, and there are many who enter through it. For the gate is narrow and the way is constricted that leads to life, and there are few who find it.' (Matthew 7:13-14)
+- The gate is broad because people are doing what is easy
+- Ex. Troubleshooting is hard, but you do it anyways because starting something that God does not want is more appealing than starting something that is
+- if you act solely based upon what is easy, you will be perished. Seek life.
+
