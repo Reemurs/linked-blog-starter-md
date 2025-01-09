@@ -71,3 +71,11 @@ The only way to overcome evil is to draw near to the Lord:
 - Pray for the ppl who help spread the gospel (19) so they can be successful in saving more souls
 - Pray to be near to God. It is is strongest resource/tool because you gain & strengthen a direct link to the creator and to the power to do good (The prayer life of soren kinkegard)
 
+Example of teaching & comforting each other:
+>'I have sent him to you for this very purpose, so that you may know about us, and that he may comfort your hearts. Now, so that you also may know about my circumstances as to what I am doing, Tychicus, the beloved brother and faithful servant in the Lord, will make everything known to you.' (Ephesians 6:21-22)
+
+Love comes from faith; love that comes from faith will always be pure:
+>'Peace be to the brothers and sisters, and love with faith, from God the Father and the Lord Jesus Christ. Grace be with all those who love our Lord Jesus Christ with incorruptible love.' (Ephesians 6:23-24)
+
+>'“Do not give what is holy to dogs, and do not throw your pearls before pigs, or they will trample them under their feet, and turn and tear you to pieces.' (Matthew 7:6)
+- do not give yourself & work to please unbelievers (dogs) becuase they will not reciprocate (true) affection and they will turn against you in the end because they only have the flesh as a mor
