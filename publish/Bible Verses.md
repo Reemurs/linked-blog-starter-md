@@ -88,11 +88,13 @@ Love comes from faith; love that comes from faith will always be pure:
 - Be ready for when trouble comes. Survive what brings you turmoil and distress. Obey God.
 
 >''for He was teaching them as one who had authority, and not as their scribes.' (Matthew 7:29)
-- Jesus is not justa bunch of written rules. He is a person who has complete authotrity over your life and has the right to tell you what to do.
+- Jesus is not just a bunch of written rules. He is a person who has complete authority over your life and He has the right to tell you what to do with your life.
 
 >'What is the source of quarrels and conflicts among you? Is the source not your pleasures that wage war in your body’s parts? You lust and do not have, so you commit murder. And you are envious and cannot obtain, so you fight and quarrel. You do not have because you do not ask. You ask and do not receive, because you ask with the wrong motives, so that you may spend what you request on your pleasures. You adulteresses, do you not know that friendship with the world is hostility toward God? Therefore whoever wants to be a friend of the world makes himself an enemy of God. Or do you think that the Scripture says to no purpose, “ He jealously desires the Spirit whom He has made to dwell in us”? But He gives a greater grace. Therefore it says, “God is opposed to the proud , but gives grace to the humble .” Submit therefore to God. But resist the devil, and he will flee from you. Come close to God and He will come close to you. Cleanse your hands, you sinners; and purify your hearts, you double-minded. Be miserable, and mourn, and weep; let your laughter be turned into mourning, and your joy into gloom. Humble yourselves in the presence of the Lord, and He will exalt you.' (James 4:1-10)
 - You are drawn away by lust to be thrust into inner conflicts and quarrels
 - when God does not give you what you want, it is because he knows it is not right for you and that it will harm you and your progress if you take it
 - When you draw away from you do so to become a friend of the world and partake in the pleasures of the world & shape yourself into the image of the devil, the enemy of God
 - Do not think that you can just ignore God and get away with it. He will always do what he says. He will get retribution/rebuke. Beware she who is tempted to replace the spirit of God's guidance with the spirit of the world.
-- It will be tough. You will have to fight against your nature. Resist the devil, the one who has overcome all current and future
+- It will be tough. You will have to fight against your nature. Resist the devil, the one who has overcome all current and future evil is your power. Then, you will be able to breathe easy because he knows that the rock that you clung yourself to will not let Him overtake you unless you allow it.
+- he will accept you and strengthen you when you repent and come to him because you are his claim
+- Do whatever you have to do to be rid of sin. It will be painful to throw what gave you "joy" away. But once you have done so, you will 
