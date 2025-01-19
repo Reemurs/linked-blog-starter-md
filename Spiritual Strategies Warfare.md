@@ -1932,4 +1932,10 @@ When you continue to pray when God has told you to act at that moment (excuse to
 
 God answered, but keep praying b/c you don't like the answer:
 Balaam: had no right to go to God with the same matter that God had clearly forbidden him from have anything to with. (Numbers 22:11-12, 20-35)
-
+### Fasting
+#### Def.
+Going w/o food
+Total: not eat/drink at all (Acts 9:9)
+Partial: Restricted diet (Daniel 10:3)
+Private: Keep it secret (Matthew 6:16-18)
+Public: 
