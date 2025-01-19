@@ -866,18 +866,18 @@ The Spirit was sent by God to draw men away from God.
 
   
 
-|   |   |   |
-|---|---|---|
-|**Holy Spirit**|**Satan**|**References**|
-|Spirit of truth|Spirit of Error|I John 4:6|
-|True|A liar|John 14:17; 8:44|
-|Life giving|A murderer|I Corinthians 15:45; John 8:44|
-|Holy|Evil|Romans 1:4; Matthew 6:13|
-|Like a dove|Like a serpent|Matthew 3:16; Revelation|
-|Our helper|Our adversary|12:9 Romans 8:26; I Peter 5:8|
-|Gives utterance|Makes men dumb|Acts 2:4; Mark 9:17|
-|Advocate|Slanderer|John 14:16; Job 1:9-11|
-|Stronger than Satan|Strong armed man|Luke 11:21-22|
+|                     |                  |                                |
+| ------------------- | ---------------- | ------------------------------ |
+| **Holy Spirit**     | **Satan**        | **References**                 |
+| Spirit of truth     | Spirit of Error  | I John 4:6                     |
+| True                | A liar           | John 14:17; 8:44               |
+| Life giving         | A murderer       | I Corinthians 15:45; John 8:44 |
+| Holy                | Evil             | Romans 1:4; Matthew 6:13       |
+| Like a dove         | Like a serpent   | Matthew 3:16; Revelation       |
+| Our helper          | Our adversary    | 12:9 Romans 8:26; I Peter 5:8  |
+| Gives utterance     | Makes men dumb   | Acts 2:4; Mark 9:17            |
+| Advocate            | Slanderer        | John 14:16; Job 1:9-11         |
+| Stronger than Satan | Strong armed man | Luke 11:21-22                  |
 
   
 
@@ -1975,3 +1975,10 @@ Long or short:
 "Bind the power of the enemy to work in your life, home, community, and church fellowship.": What does this mean
 
 Loose ppl from bondage of sin
+#### Do it all in the Name of Jesus
+>'If you ask Me anything in My name, I will do it. (John 14:14)
+
+>'And Jesus came up and spoke to them, saying, “All authority in heaven and on earth has been given to Me. Go, therefore, and make disciples of all the nations, baptizing them in the name of the Father and the Son and the Holy Spirit, teaching them to follow all that I commanded you; and behold, I am with you always, to the end of the age.”' (Matthew 28:18-20)
+
+>'These signs will accompany those who have believed: in My name they will cast out demons, they will speak with new tongues; they will pick up serpents, and if they drink any deadly poison, it will not harm them; they will lay hands on the sick, and they will recover.”' (Mark 16:17-18)
+
