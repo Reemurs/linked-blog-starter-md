@@ -1947,6 +1947,8 @@ Public: Leaders call for it for all church members (Joel 2:15)
 >=='“Yet even now,” declares the Lord, “Return to Me with all your heart, And with fasting, weeping, and mourning; And tear your heart and not merely your garments.” Now return to the Lord your God, For He is gracious and compassionate, Slow to anger, abounding in mercy And relenting of catastrophe.' (Joel 2:12-13)==
 	- How & why you should repent (it is a relief)
 - For revelation: Daniel 9:2 (wrong, but same chapter; Gabriel came to answer his prayer); 3:21-22 (wrong)
--To loose bands of wickedness, lift heavy burdens, set the oppressed free, and break every bondage: Isaiah 58:6
--To feed the poor, both physically and spiritually: Isaiah 58:7
+- To loose bands of wickedness, lift heavy burdens, set the oppressed free, and break every bondage: Isaiah 58:6
+	- Not just for your sake, but for the sake of others
+- To feed the poor, both physically and spiritually: Isaiah 58:7
+	- What does hid
 -To be heard of God: II Samuel 12:16,22; Jonah 3:5,10
