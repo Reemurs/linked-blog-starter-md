@@ -1813,14 +1813,17 @@ You enter his presence with:
 - **Praise**: thanksgiving; express gratitude for what God is & does
 
 Examples:
-Singing: Psalms 9:2,11; 40:3; Mark 14:26 (hymn, praise not mentioned)
-Audible praise: Psalms 103:1 (wrong ref)
-Shouting: Psalms 47:1 
-Lifting up of the hands: Psalms 63:4; 134:2; I Timothy 2:8
-Clapping: Psalms 47:1
-Musical instruments: Psalms 150:3-5 (+ dancing)
-Standing: II Chronicles 20:19 
-Bowing: Psalms 95:6
-Dancing: Psalms 149:3
-Kneeling: Psalms 95:6
-Lying down: Psalms 149:5
+- Singing: Psalms 9:2,11; 40:3; Mark 14:26 (hymn, praise not mentioned)
+- Audible praise: Psalms 103:1 (wrong ref)
+- Shouting: Psalms 47:1 
+- Lifting up of the hands: Psalms 63:4; 134:2; I Timothy 2:8
+- Clapping: Psalms 47:1
+- Musical instruments: Psalms 150:3-5 (+ dancing)
+- Standing: II Chronicles 20:19 
+- Bowing & Kneeling: Psalms 95:6
+- Dancing: Psalms 149:3
+- Lying down: Psalms 149:5 (in bed)
+
+###### Commitment
+Commit life/will to God
+Incl. dedication & consecration
