@@ -1826,4 +1826,8 @@ Examples:
 
 ###### Commitment
 Commit life/will to God
-Incl. dedication & consecration
+Incl. dedication & consecration (an act by which a person or a thing is separated from secular or profane use and dedicated permanently to the sacred by prayers, rites, and ceremonies -Britannica)
+###### Petition
+Requests (according to God's will): ask/seek/knock
+Supplication: beseeching (determined begging 4 something u are showing that u really need) God or strongly appealing to Him in behalf of a need
+###### 
