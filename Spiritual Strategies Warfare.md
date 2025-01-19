@@ -1942,7 +1942,9 @@ Partial: Restricted diet (Daniel 10:3)
 Private: Keep it secret (Matthew 6:16-18)
 Public: Leaders call for it for all church members (Joel 2:15)
 
-
+**Length**
+Long or short:
+"Jacob was originally making a meal for himself but denied himself in order to obtain the birthright. How much better if Esau had fasted that one meal!"
 #### Purpose
 - To humble yourself: Psalms 35:13; 69:10 (bullying b/c of it)
 - To repent of sin:
@@ -1968,5 +1970,8 @@ Public: Leaders call for it for all church members (Joel 2:15)
 	- Earnestly plead to God for repentance & salvation from consequences & he will listen to you
 
 "Fasting does not change God. It changes you. God relates to you on the basis of your relationship to Him. When you change, then the way God deals with you is affected. You do not fast to change God, because God does not change."
-### 
+### Keys of the Kingdom
+"Jesus taught the importance of binding evil spirits before casting them out": Where? How?
+"Bind the power of the enemy to work in your life, home, community, and church fellowship.": What does this mean
 
+Loose ppl from bondage of sin
