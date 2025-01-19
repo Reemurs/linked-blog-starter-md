@@ -1891,12 +1891,13 @@ Spirit intercedes for us (Romans 8:26)
 - Them that despitefully use you (your enemies): Luke 6:28
 - All the saints: Ephesians 6:18
 - The sick: James 5:14 (church elders praying; for those you know personally)
--One for another (bearing each other's burdens): James 5:16
--For all men, kings, and those in authority: I Timothy 2:1-4
-115
--For daily needs: Matthew 6:11
--For wisdom: James 1:5
--For healing: James 5:14-15
--For forgiveness: Matthew 6:12
--For God's will and Kingdom to be established: Matthew 6:10
+- One for another (bearing each other's burdens): James 5:16
+- For all men, kings, and those in authority: I Timothy 2:1-4
+- For daily needs: Matthew 6:11
+- For wisdom: 
+>'But if any of you lacks wisdom, let him ask of God, who gives to all generously and without reproach, and it will be given to him.' (James 1:5)
+- God will give you a lot of wisdom and he won't ciriticize you for not having it previously if you ask him for it
+- For healing: James 5:14-15
+- For forgiveness: Matthew 6:12
+- For God's will and Kingdom to be established: Matthew 6:10
 -For relief from affliction: James 5:13
