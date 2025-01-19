@@ -160,8 +160,10 @@ Love comes from faith; love that comes from faith will always be pure:
 - Idea: God needs companionship & praise
 	- All the angels praise him in heaven & all of creation praises him
 	- it is what we are to do for all eternity after we die
-	- God created so he wouldn't be alone & so that he would ahve someone to glorify him
+	- God created so he wouldn't be alone & so that he would have someone to glorify him
+	- God made Jesus a man so he could give us an example of how to be (and we would not be able to follow his example if he was not like us), so he already shares some experiences with us and has some things in common with us (we share his likeness & he based us off of himself)
 	- Difference form human needs: God can fulfill his own needs (creating creatures that praise him) while humans can't (have to depend on God to give it to them)
 		- So, it is not a sign of weakness, but of relatability
+			- he is not like us where we are dependent on an external force to sustain us
 		- God knows what it is like to need something (Jesus was hungry when he was being tempted to create bread)
-		- He understands what it is like to be tempted and needed, so he can help us by teaching us to end
+		- He understands what it is like to be tempted and needed, so he can help us by teaching us to endure/avoid temptation and by promising to meet all our needs
