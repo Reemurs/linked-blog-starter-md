@@ -167,3 +167,6 @@ Love comes from faith; love that comes from faith will always be pure:
 			- he is not like us where we are dependent on an external force to sustain us
 		- God knows what it is like to need something (Jesus was hungry when he was being tempted to create bread)
 		- He understands what it is like to be tempted and needed, so he can help us by teaching us to endure/avoid temptation and by promising to meet all our needs
+- Daniel was desperate to be answered, but he didn't get one until a while had passed (since Satan delayed Gabriel)
+	- Even if you do not get an answer in the timeframe in which you think you need one, God knows when is the right time to deliver it & he will give one to you (as long as you are not doing it selfishly, do not have a hard heart, are not going against his will by asking for something that he already said you can't have, and other hinderances)
+		- do not worry if you don't get answer. in that case, you did not need one anyways and God will deal with your situation in his own way
