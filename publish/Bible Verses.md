@@ -121,3 +121,8 @@ Love comes from faith; love that comes from faith will always be pure:
 - you premediate it
 - Do not hide your darkness in darkness, expose it to the light and confess it so it can be cleansed
 - Nothing is worth betraying the Lord by loving it more than Him
+
+>'¶Therefore justice is far from us, And righteousness does not reach us; We hope for light, but there is darkness, For brightness, but we walk in gloom. We grope for the wall like people who are blind, We grope like those who have no eyes. We stumble at midday as in the twilight; Among those who are healthy we are like the dead. All of us growl like bears, And moan sadly like doves; We hope for justice, but there is none; For salvation, but it is far from us. For our wrongful acts have multiplied before You, And our sins have testified against us; For our wrongful acts are with us, And we know our wrongdoings: Offending and denying the L ord , And turning away from our God, Speaking oppression and revolt, Conceiving and uttering lying words from the heart. Justice is turned back, And righteousness stands far away; For truth has stumbled in the street, And uprightness cannot enter. Truth is lacking, And one who turns aside from evil makes himself a prey. N ow the L ord saw, And it was displeasing in His sight that there was no justice. And He saw that there was no one, And was amazed that there was not one to intercede; Then His own arm brought salvation to Him, And His righteousness upheld Him.' (Isaiah 59:9-16)
+- How terrible sinning and being far from God makes you feel
+- this is why God created an intercessor
+- He wants us to do well & be saved, even though we resist him b/c he is merciful

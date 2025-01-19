@@ -1832,8 +1832,11 @@ Requests (according to God's will): ask/seek/knock
 Supplication: beseeching (determined begging 4 something u are showing that u really need) God or strongly appealing to Him in behalf of a need
 ###### Confession & Repentance
 (I John 1:9)
-
 ###### Intercession
 Pray/plead for others
-God made Jesus as an intercessor for us when there was none
+>'For there is one God, and one mediator also between God and mankind, the Man Christ Jesus, (1 Timothy 2:5)
 
+>'My little children, I am writing these things to you so that you may not sin. And if anyone sins, we have an Advocate with the Father, Jesus Christ the righteous;' (1 John 2:1)
+
+Advocate in court of justice = legal assistant or counselor who pleads another's
+cause
