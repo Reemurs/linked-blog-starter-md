@@ -1830,4 +1830,10 @@ Incl. dedication & consecration (an act by which a person or a thing is separate
 ###### Petition
 Requests (according to God's will): ask/seek/knock
 Supplication: beseeching (determined begging 4 something u are showing that u really need) God or strongly appealing to Him in behalf of a need
-###### 
+###### Confession & Repentance
+(I John 1:9)
+
+###### Intercession
+Pray/plead for others
+God made Jesus as an intercessor for us when there was none
+
