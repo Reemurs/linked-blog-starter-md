@@ -1982,3 +1982,7 @@ Loose ppl from bondage of sin
 
 >'These signs will accompany those who have believed: in My name they will cast out demons, they will speak with new tongues; they will pick up serpents, and if they drink any deadly poison, it will not harm them; they will lay hands on the sick, and they will recover.”' (Mark 16:17-18)
 
+It is powerful:
+>'far above all rule and authority and power and dominion, and every name that is named, not only in this age but also in the one to come.' (Ephesians 1:21)
+
+>'For this reason also God highly exalted Him, and bestowed on Him the name which is above every name, so that at the name of Jesus every knee will bow , of those who are in heaven and on earth and under the earth, and that every tongue will confess that Jesus Christ is Lord, to the glory of God the Father.' (Philippians 2:9-11)
