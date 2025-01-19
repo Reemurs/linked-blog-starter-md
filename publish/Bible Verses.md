@@ -138,5 +138,5 @@ Love comes from faith; love that comes from faith will always be pure:
 >'Therefore, confess your sins to one another, and pray for one another so that you may be healed. A prayer of a righteous person, when it is brought about, can accomplish much.' (James 5:16)
 - Intercession is powerful: seek & do it
 
->'in order to take hold of the hearts of the house of Israel who have turned away from Me due to all their idols.” ’Therefore speak to them and tell them, ‘This is what the Lord God says: “Anyone of the house of Israel who sets up his idols in his heart, puts in front of his face the stumbling block of his wrongdoing, and then comes to the prophet, I the Lord will let Myself answer him in the matter in view of the multitude of his idols,' (Ezekiel 14:4-5)
-- 
+>'in order to take hold of the hearts of the house of Israel who have turned away from Me due to all their idols.” ’Therefore speak to them and tell them, ‘This is what the Lord God says: “==Anyone of the house of Israel who sets up his idols in his heart, puts in front of his face the stumbling block of his wrongdoing==, and then comes to the prophet, I the Lord will let Myself answer him in the matter in view of the multitude of his idols,' (Ezekiel 14:4-5)
+- God gets us to return to him by showing us that he is more powerful in front of our idols
