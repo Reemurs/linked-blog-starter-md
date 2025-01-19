@@ -1922,7 +1922,7 @@ Spirit intercedes for us (Romans 8:26)
 - Not asking in Jesus' name:
 >'Until now you have asked for nothing in My name; ask and you will receive, so that your joy may be made full.' (John 16:24)
 	- How to get full joy: ask in Jesus's name
--Satanic demonic hindrances: Daniel 10:10-13; Ephesians 6:12
+- Satanic demonic hindrances: Daniel 10:10-13 (); Ephesians 6:12
 -Not seeking first the Kingdom: It is only when you seek first the Kingdom of God that you
 are promised the "other things": Matthew 6:33
 -God has a higher purpose in denying your request: II Corinthians 12:8-9
