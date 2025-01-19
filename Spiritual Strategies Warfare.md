@@ -1861,12 +1861,10 @@ Spirit intercedes for us (Romans 8:26)
 - You sin by neglecting to pray for others: I Samuel 12:23 (Samuel prays for the people, did this just apply to him?)
 - Pray with understanding (= in a known tongue): I Corinthians 13-17
 - Pray in the Spirit: Romans 8:26 (wrong verse; about Spirit's intercession -> benefit of this); Jude 20
--Pray according to the will of God: I John 5:14-15
->'This is the confidence which we have before Him, that, if we ask anything according to His will, He hears us. And if we know that He hears us in whatever we ask, we know that we have the requests which we have asked from Him. '
-
-1 John 5:14-15
-https://www.bible.com/bible/2692/1JN.5.14-15
--Pray in secret: Matthew 6:6
+- Pray according to the will of God:
+>'This is the confidence which we have before Him, that, if we ask anything according to His will, He hears us. And if we know that He hears us in whatever we ask, we know that we have the requests which we have asked from Him.' (1 John 5:14-15)
+	- God hears us when we ask according to his will so we WILL get our requests met
+- Pray in secret: Matthew 6:6
 -Quality rather than quantity is stressed. Prayer is not successful because of "much speaking":
 Matthew 6:7
 -Pray always: Luke 21:36; Ephesians 6:18
