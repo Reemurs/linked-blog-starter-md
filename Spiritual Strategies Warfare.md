@@ -1903,9 +1903,11 @@ Spirit intercedes for us (Romans 8:26)
 - For relief from affliction: James 5:13 (& praise when cheerful)
 - To receive the promises of God (so you don't seek the reward yourself and sin): James 4:3
 #### Hinderances
-Sin of any kind: Isaiah 59:1-2; Psalm 66:18; Isaiah 1:15; Proverbs 28:9
->'Behold, the L ord ’ s hand is not so short That it cannot save; Nor is His ear so dull That it cannot hear. But your wrongdoings have caused a separation between you and your God, And your sins have hidden His face from you so that He does not hear.' (Isaiah 59:1-2)
--Idols in the heart: Ezekiel 14:1-3
+- Sin of any kind: Isaiah 1:15; Proverbs 28:9
+>'Behold, the Lord ’ s hand is not so short That it cannot save; Nor is His ear so dull That it cannot hear. But your wrongdoings have caused a separation between you and your God, And your sins have hidden His face from you so that He does not hear.' (Isaiah 59:1-2)
+>'If I regard wickedness in my heart, The Lord will not hear;' (Psalm 66:18)
+>'One who turns his ear away from listening to the Law, Even his prayer is an abomination.' (Proverbs 28:9)
+- Idols in the heart: Ezekiel 14:1-3
 -An unforgiving spirit: Mark 11:25; Matthew 5:23
 -Selfishness, wrong motives: Proverbs 21:13; James 4:3
 -Power hungry, manipulative prayers: James 4:2-3
