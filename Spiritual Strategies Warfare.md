@@ -1857,7 +1857,8 @@ Spirit intercedes for us (Romans 8:26)
 >'Now when Daniel learned that the document was signed, he entered his house (and in his roof chamber he had windows open toward Jerusalem); and he continued kneeling on his knees three times a day, praying and offering praise before his God, just as he had been doing previously.' (Daniel 6:10)
 	- Daily Model for how you should speak to God
 - You sin by neglecting to pray for others: I Samuel 12:23 (Samuel prays for the people, did this just apply to him?)
--Pray with understanding (in a known tongue): Ephesians 6:18
+-Pray with understanding (in a known tongue):
+>' With every prayer and request, pray at all times in the Spirit, and with this in view, be alert with all perseverance and every request for all the saints,'Ephesians 6:18)
 -Pray in the Spirit: Romans 8:26; Jude 20
 -Pray according to the will of God: I John 5:14-15
 -Pray in secret: Matthew 6:6

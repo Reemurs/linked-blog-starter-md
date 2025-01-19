@@ -126,3 +126,8 @@ Love comes from faith; love that comes from faith will always be pure:
 - How terrible sinning and being far from God makes you feel
 - this is why God created an intercessor
 - He wants us to do well & be saved, even though we resist him b/c he is merciful
+
+>'Samuel said to the people, “Do not fear. You have committed all this evil, yet do not turn aside from following the Lord , but serve the Lord with all your heart. Indeed, you must not turn aside, for then you would go after useless things which cannot benefit or save, because they are useless. For the Lord will not abandon His people on account of His great name, because the L ord has been pleased to make you a people for Himself. Only fear the Lord and serve Him in truth with all your heart; for consider what great things He has done for you. Furthermore, as for me, far be it from me that I would sin against the Lord by ceasing to pray for you; but I will instruct you in the good and right way. But if you still do evil, both you and your king will be swept away.”' (1 Samuel 12:20-25)
+- Do not fear after you have sinned and turned back to God b/c he will not abandon you
+	- Listen to his instruction, do not turn aside in anyway, and serve him with all your heart
+- Do not abandon him for what is useless & be subject to his wrath again (for the unsaved, in your case it is discipline)
