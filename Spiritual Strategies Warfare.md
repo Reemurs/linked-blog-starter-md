@@ -1956,4 +1956,7 @@ Public: Leaders call for it for all church members (Joel 2:15)
 	- You cannot undo what the Lord has done, so don't waste any effort trying to change it yourself or pleading with him for it
 	- fasting gives you an opportunity to present your request to God
 	- God will fulfill what he has promised, even if it hurts & nothing you do could change his mind once he set it (but remember when God said that he was going to destroy Israel, but his servants {the prophets} pleaded with him not to and then he changed his mind b/c of them, this is what David was trying to do, God had not yet set in stone what would happen yet that time & he knew his servants would plead with him & that he would listen to him since his plan was not to destroy israel but to set aside a people for himself forever, but this time he did set it in stone& that's why David could not change it)
-	- Maybe see the differences b/w that time & this time to see when God makes it clear that he will not change his mind no matter what so you will not waste your time praying when you aren't supposed to (praying even though you know the answer {child wil})
+	- Maybe see the differences b/w that time & this time to see when God makes it clear that he will not change his mind no matter what so you will not waste your time praying when you aren't supposed to (praying even though you know the answer {child will die}, but you didn't like it)
+		- the prophets pleaded with God immediately after he declared destruction (the decision was not finalized yet)
+		- God explicitly told David "the child... shall certainly die" -. God was telling him that no matter what it would happen ()
+		- Conclusion: I would plead with God unless he said he will not change his mind b/c God 
