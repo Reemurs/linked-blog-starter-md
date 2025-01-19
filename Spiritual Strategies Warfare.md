@@ -1883,3 +1883,20 @@ Spirit intercedes for us (Romans 8:26)
 - Pray with submission to God:
 >'saying, “Father, if You are willing, remove this cup from Me; yet not My will, but Yours be done.”' (Luke 22:42)
 - Use the strategies of binding and loosing in prayer: Matthew 16:19
+	- Bind Satan & loosen chains
+#### Pray for:
+- The peace of Jerusalem: Psalms 122:6
+- Laborers in the harvest: Matthew 9:38 (send them out)
+- That you enter not into temptation: Luke 22:40-46 (do not sleep {ignore risk} & be blind to the dangers instead)
+-Them that despitefully use you (your enemies): Luke 6:28
+-All the saints: Ephesians 6:18
+-The sick: James 5:14
+-One for another (bearing each other's burdens): James 5:16
+-For all men, kings, and those in authority: I Timothy 2:1-4
+115
+-For daily needs: Matthew 6:11
+-For wisdom: James 1:5
+-For healing: James 5:14-15
+-For forgiveness: Matthew 6:12
+-For God's will and Kingdom to be established: Matthew 6:10
+-For relief from affliction: James 5:13
