@@ -1837,6 +1837,10 @@ Pray/plead for others
 >'For there is one God, and one mediator also between God and mankind, the Man Christ Jesus, (1 Timothy 2:5)
 
 >'My little children, I am writing these things to you so that you may not sin. And if anyone sins, we have an Advocate with the Father, Jesus Christ the righteous;' (1 John 2:1)
+- Advocate in court of justice = legal assistant or counselor who pleads another's cause
 
-Advocate in court of justice = legal assistant or counselor who pleads another's
-cause
+Spirit intercedes for us (Romans 8:26)
+
+>'First of all, then, I urge that requests, prayers, intercession, and thanksgiving be made in behalf of all people, for kings and all who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. who wants all people to be saved and to come to the knowledge of the truth. This is good and acceptable in the sight of God our Savior, '
+
+1 Timothy 2:1-4)
