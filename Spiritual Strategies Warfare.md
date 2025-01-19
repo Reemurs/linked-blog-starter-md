@@ -1879,6 +1879,7 @@ Spirit intercedes for us (Romans 8:26)
 - forgive & get rid of any grudges during prayer; don't worry about having to have done it earlier
 - Pray with humility: Matthew 6:7 (wrong verse)
 - Sometimes accompany prayer with fasting: Matthew 17:21
--Pray fervently: James 5:16; Colossians 4:12
--Pray with submission to God: Luke 22:42
--Use the strategies of binding and loosing in prayer: Matthew 16:19
+- Pray fervently: Colossians 4:12 (wrong, but earnest intercession ex.)
+- Pray with submission to God:
+>'saying, “Father, if You are willing, remove this cup from Me; yet not My will, but Yours be done.”' (Luke 22:42)
+- Use the strategies of binding and loosing in prayer: Matthew 16:19
