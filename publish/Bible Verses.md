@@ -156,4 +156,12 @@ Love comes from faith; love that comes from faith will always be pure:
 	- Give all your attention to him to get rid of your biggest problem (it is all you can think about when it is wrecking your life, so might as well think about God instead to resolve it)
 	- Praise him first (also done in Lord's prayer) for the reasons stated above (his goodness and righteousness in his judgement and punishments of sinners)
 - Sinning is really bad: even turning aside from Your commandments and ordinances (the one thing that we promised to do for you, God)
-- God does not only save you for your sake bu
+- God does not only save you for your sake but for his (purposes) b/c he purposes to save the world and show everyone who is worthy of glory (be praised)
+- Idea: God needs companionship & praise
+	- All the angels praise him in heaven & all of creation praises him
+	- it is what we are to do for all eternity after we die
+	- God created so he wouldn't be alone & so that he would ahve someone to glorify him
+	- Difference form human needs: God can fulfill his own needs (creating creatures that praise him) while humans can't (have to depend on God to give it to them)
+		- So, it is not a sign of weakness, but of relatability
+		- God knows what it is like to need something (Jesus was hungry when he was being tempted to create bread)
+		- He understands what it is like to be tempted and needed, so he can help us by teaching us to end
