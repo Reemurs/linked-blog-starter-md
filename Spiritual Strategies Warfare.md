@@ -1941,6 +1941,8 @@ Total: not eat/drink at all (Acts 9:9)
 Partial: Restricted diet (Daniel 10:3)
 Private: Keep it secret (Matthew 6:16-18)
 Public: Leaders call for it for all church members (Joel 2:15)
+
+
 #### Purpose
 - To humble yourself: Psalms 35:13; 69:10 (bullying b/c of it)
 - To repent of sin:
@@ -1962,4 +1964,9 @@ Public: Leaders call for it for all church members (Joel 2:15)
 		- Conclusion: I would plead with God unless he said he will not change his mind & I would ask God for clarification on whether his future action is truly not to be changed. This may be reaching into the territory where you pray again b/c you don't like the answer, but too much prayer is better than too little & God knows your intentions each time you do so (whether you are refusing to do God's will and trying to change it with your own methods {using prayer as one of them} or earnestly pleading with him to take the cup from you) & in the ex. occasions, God did end up giving an answer, even if it was harsh and still was not what the praying ppl wanted to hear, so at least you'll get an answer if you do wrong
 			- always pray, even if it is excessive b/c it is an opportunity for God to teach you discernment (when things are appropriate) and about other things relating to situation & you always want to be close to God (pray w/o ceasing), & you don't want to jeopardize that b/c you though a situation in which you should pray was a situation in which you shouldn't pray b/c of this dodgy lesson
 	- Ex. of God "changing his mind": Jonah 3:5-10
+>'Then the people of Nineveh believed in God; and they called a fast and put on sackcloth, from the greatest to the least of them. When the word reached the king of Nineveh, he got up from his throne, removed his robe from himself, covered himself with sackcloth, and sat on the dust. And he issued a proclamation, and it said, “In Nineveh by the decree of the king and his nobles: No person, animal, herd, or flock is to taste anything. They are not to eat, or drink water. But every person and animal must be covered with sackcloth; and people are to call on God vehemently, and they are to turn, each one from his evil way, and from the violence which is in their hands. Who knows, God may turn and relent, and turn from His burning anger so that we will not perish.” When God saw their deeds, that they turned from their evil way, then God relented of the disaster which He had declared He would bring on them. So He did not do it.' (Jonah 3:5-10)
+	- Earnestly plead to God for repentance & salvation from consequences & he will listen to you
+
+"Fasting does not change God. It changes you. God relates to you on the basis of your relationship to Him. When you change, then the way God deals with you is affected. You do not fast to change God, because God does not change."
+### 
 
