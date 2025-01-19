@@ -1847,3 +1847,4 @@ Spirit intercedes for us (Romans 8:26)
 - Use the second phrase for everything good to remember that u do what is acceptable to God (obey him) b/c he saved you & loves everyone despite their wickedness
 ###### Model Prayer
 ![![remote-blog/#*Table]]
+#### How to Pray
