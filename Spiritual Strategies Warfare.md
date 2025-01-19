@@ -1867,12 +1867,15 @@ Spirit intercedes for us (Romans 8:26)
 - Pray in secret: Matthew 6:6
 - Quality rather than quantity is stressed. Prayer is not successful because of "much speaking": Matthew 6:7
 - Pray always: Luke 21:36 (stay alert always {make sure you don't enter temptation} & pray b/c u wanna be ready 4 the coming of Jesus); Ephesians 6:18
-- Pray continually: Romans 12:12
--Pray without ceasing: I Thessalonians 5:17
--Pray to the Father in the name of Jesus: John 15:16
--With a watchful attitude: I Peter 4:7
--Pray according to the example of the model prayer: Matthew 6:9-13
--Pray with a forgiving spirit: Mark 11:25
+- Pray continually: Romans 12:12 (wrong, devoted to prayer)
+- Pray without ceasing: I Thessalonians 5:17
+- Pray to the Father in the name of Jesus: John 15:16
+- With a watchful attitude: wrong verse; yes b/c disciples had to be watchful & pray when tribulation of Jesus near
+>'The end of all things is near; therefore, be of sound judgment and sober spirit for the purpose of prayer.' (1 Peter 4:7)
+	- Luke 21:36
+- Pray according to the example of the model prayer: Matthew 6:9-13
+-Pray with a forgiving spirit: Mark 11:25 (forgive & get rid of any grudges during prayer)
+>
 -Pray with humility: Matthew 6:7
 -Sometimes accompany prayer with fasting: Matthew 17:21
 -Pray fervently: James 5:16; Colossians 4:12
