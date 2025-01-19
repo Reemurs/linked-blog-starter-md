@@ -1851,10 +1851,11 @@ Spirit intercedes for us (Romans 8:26)
 - Pray to God: 
 >'Listen to the sound of my cry for help, my King and my God, For to You I pray.' (Psalm 5:2)
 	- God is the one we rely on
-Empty repetition is forbidden, but earnest repetition is not: Matthew 6:7; Daniel 6:10;
-Luke 11:5-13; 18:1-8
+- Empty repetition is forbidden, but earnest repetition is not: Luke 11:5-13(kock & you will recieve: ); 18:1-8
 >'“And when you are praying, do not use thoughtless repetition as the Gentiles do, for they think that they will be heard because of their many words. So do not be like them; for your Father knows what you need before you ask Him.' (Matthew 6:7-8)
-	- 
+	- You do not have to use many words when you pray b/c God already knows what you need, so you do not have to pray about everything you need, use your growing discernment to know what does not have to be said
+>'Now when Daniel learned that the document was signed, he entered his house (and in his roof chamber he had windows open toward Jerusalem); and he continued kneeling on his knees three times a day, praying and offering praise before his God, just as he had been doing previously.' (Daniel 6:10)
+	- Daily Model for how you should speak to God
 -You sin by neglecting to pray for others: I Samuel 12:23
 -Pray with understanding (in a known tongue): Ephesians 6:18
 -Pray in the Spirit: Romans 8:26; Jude 20
