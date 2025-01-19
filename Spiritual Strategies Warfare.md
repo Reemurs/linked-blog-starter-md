@@ -1943,12 +1943,10 @@ Private: Keep it secret (Matthew 6:16-18)
 Public: Leaders call for it for all church members (Joel 2:15)
 #### Purpose
 - To humble yourself: Psalms 35:13; 69:10 (bullying b/c of it)
-- To repent of sin: Joel 2:12
->'“Yet even now,” declares the Lord , “Return to Me with all your heart, And with fasting, weeping, and mourning; And tear your heart and not merely your garments.” Now return to the Lord your God, For He is gracious and compassionate, Slow to anger, abounding in mercy And relenting of catastrophe.'
-
-Joel 2:12-13
-https://www.bible.com/bible/2692/JOL.2.12-13
--For revelation: Daniel 9:2; 3:21-22
+- To repent of sin:
+>=='“Yet even now,” declares the Lord, “Return to Me with all your heart, And with fasting, weeping, and mourning; And tear your heart and not merely your garments.” Now return to the Lord your God, For He is gracious and compassionate, Slow to anger, abounding in mercy And relenting of catastrophe.' (Joel 2:12-13)==
+	- How & why you should repent (it is a relief)
+- For revelation: Daniel 9:2; 3:21-22
 -To loose bands of wickedness, lift heavy burdens, set the oppressed free, and break
 every bondage: Isaiah 58:6
 -To feed the poor, both physically and spiritually: Isaiah 58:7
