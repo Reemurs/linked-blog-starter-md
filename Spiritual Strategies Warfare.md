@@ -1841,6 +1841,9 @@ Pray/plead for others
 
 Spirit intercedes for us (Romans 8:26)
 
->'First of all, then, I urge that requests, prayers, intercession, and thanksgiving be made in behalf of all people, for kings and all who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. who wants all people to be saved and to come to the knowledge of the truth. This is good and acceptable in the sight of God our Savior, '
-
-1 Timothy 2:1-4)
+>'First of all, then, ==I urge that requests, prayers, intercession, and thanksgiving be made in behalf of all people==, for kings and all who are in authority, so that we may lead a tranquil and quiet life in all godliness and dignity. who wants all people to be saved and to come to the knowledge of the truth. ==This is good and acceptable in the sight of God our Savior==,' (1 Timothy 2:1-4)
+- Pray for everyone incl. authority figures
+	- so everyone can be saved
+- Use the second phrase for everything good to remember that u do what is acceptable to God (obey him) b/c he saved you & loves everyone despite their wickedness
+###### Model Prayer
+![![remote-blog/#*Table]]
