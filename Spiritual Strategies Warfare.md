@@ -1865,10 +1865,9 @@ Spirit intercedes for us (Romans 8:26)
 >'This is the confidence which we have before Him, that, if we ask anything according to His will, He hears us. And if we know that He hears us in whatever we ask, we know that we have the requests which we have asked from Him.' (1 John 5:14-15)
 	- God hears us when we ask according to his will so we WILL get our requests met
 - Pray in secret: Matthew 6:6
--Quality rather than quantity is stressed. Prayer is not successful because of "much speaking":
-Matthew 6:7
--Pray always: Luke 21:36; Ephesians 6:18
--Pray continually: Romans 12:12
+- Quality rather than quantity is stressed. Prayer is not successful because of "much speaking": Matthew 6:7
+- Pray always: Luke 21:36 (stay alert always {make sure you don't enter temptation} & pray b/c u wanna be ready 4 the coming of Jesus); Ephesians 6:18
+- Pray continually: Romans 12:12
 -Pray without ceasing: I Thessalonians 5:17
 -Pray to the Father in the name of Jesus: John 15:16
 -With a watchful attitude: I Peter 4:7
