@@ -1950,5 +1950,9 @@ Public: Leaders call for it for all church members (Joel 2:15)
 - To loose bands of wickedness, lift heavy burdens, set the oppressed free, and break every bondage: Isaiah 58:6
 	- Not just for your sake, but for the sake of others
 - To feed the poor, both physically and spiritually: Isaiah 58:7
-	- What does hid
--To be heard of God: II Samuel 12:16,22; Jonah 3:5,10
+	- What does hiding from your own flesh mean? Hiding from the suffering of fellow men that you could help alleviate?
+-To be heard of God: II Samuel 12:16-17,22; Jonah 3:5,10
+>'Then Nathan went to his house. Later the Lord struck the child that Uriah’s widow bore to David, so that he was very sick. David therefore pleaded with God for the child; and David fasted and went and lay all night on the ground. But when David saw that his servants were whispering together, David perceived that the child was dead; so David said to his servants, “Is the child dead?” And they said, “He is dead.” So David got up from the ground, washed, anointed himself, and changed his clothes; and he went into the house of the Lord and worshiped. Then he went to his own house, and when he asked, they served him food, and he ate. Then his servants said to him, “What is this thing that you have done? You fasted and wept for the child while he was alive; but when the child died, you got up and ate food.” And he said, “While the child was still alive, I fasted and wept; for I said, ‘Who knows, the L ord may be gracious to me, and the child may live.’ But now he has died; why should I fast? Can I bring him back again? I am going to him, but he will not return to me.” (2 Samuel 12:15-16,19-23)
+- You cannot undo what the Lord has done, so don't waste any effort trying to change it yourself or pleading with him for it
+- fasting gives you an opportunity to present your request to God
+- God will fulfill
