@@ -1900,4 +1900,26 @@ Spirit intercedes for us (Romans 8:26)
 - For healing: James 5:14-15
 - For forgiveness: Matthew 6:12
 - For God's will and Kingdom to be established: Matthew 6:10
--For relief from affliction: James 5:13
+- For relief from affliction: James 5:13 (& praise when cheerful)
+- To receive the promises of God (so you don't seek the reward yourself and sin): James 4:3
+#### Hinderances
+Sin of any kind: Isaiah 59:1-2; Psalm 66:18; Isaiah 1:15; Proverbs 28:9
+>'Behold, the L ord ’ s hand is not so short That it cannot save; Nor is His ear so dull That it cannot hear. But your wrongdoings have caused a separation between you and your God, And your sins have hidden His face from you so that He does not hear.' (Isaiah 59:1-2)
+-Idols in the heart: Ezekiel 14:1-3
+-An unforgiving spirit: Mark 11:25; Matthew 5:23
+-Selfishness, wrong motives: Proverbs 21:13; James 4:3
+-Power hungry, manipulative prayers: James 4:2-3
+-Wrong treatment of marriage partner: I Peter 3:7
+-Self-righteousness: Luke 18:10-14
+-Unbelief: James 1:6-7
+-Not abiding in Christ and His Word: John 15:7
+-Lack of compassion: Proverbs 21:13\
+-Hypocrisy, pride, meaningless repetition: Matthew 6:5; Job 35:12-13
+-Not asking according to the will of God: James 4:2-3
+-Not asking in Jesus' name: John 16:24
+-Satanic demonic hindrances: Daniel 10:10-13; Ephesians 6:12
+-Not seeking first the Kingdom: It is only when you seek first the Kingdom of God that you
+are promised the "other things": Matthew 6:33
+-God has a higher purpose in denying your request: II Corinthians 12:8-9
+-When you do not know how to pray as you should, prayer is hindered. This is why it is
+important to let the Holy Spirit pray through you: Romans 8:26
