@@ -1874,10 +1874,11 @@ Spirit intercedes for us (Romans 8:26)
 >'The end of all things is near; therefore, be of sound judgment and sober spirit for the purpose of prayer.' (1 Peter 4:7)
 	- Luke 21:36
 - Pray according to the example of the model prayer: Matthew 6:9-13
--Pray with a forgiving spirit: Mark 11:25 (forgive & get rid of any grudges during prayer)
->
--Pray with humility: Matthew 6:7
--Sometimes accompany prayer with fasting: Matthew 17:21
+- Pray with a forgiving spirit: 
+>'And whenever you stand praying, forgive, if you have anything against anyone, so that your Father who is in heaven will also forgive you for your offenses.' (Mark 11:2)
+- forgive & get rid of any grudges during prayer; don't worry about having to have done it earlier
+- Pray with humility: Matthew 6:7 (wrong verse)
+- Sometimes accompany prayer with fasting: Matthew 17:21
 -Pray fervently: James 5:16; Colossians 4:12
 -Pray with submission to God: Luke 22:42
 -Use the strategies of binding and loosing in prayer: Matthew 16:19
