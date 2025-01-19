@@ -111,7 +111,13 @@ Love comes from faith; love that comes from faith will always be pure:
 - don't arrogantly try to control your future, submit to God and do what is right (obey him) now, don't wait to do it later
 
 >'While He was in Bethany at the home of Simon the Leper, He was reclining at the table, and a woman came with an alabaster vial of very expensive perfume of pure nard. She broke the vial and poured the perfume over His head. But there were some indignantly remarking to one another, “Why has this perfume been wasted? For this perfume could have been sold for over three hundred denarii, and the money given to the poor.” And they were scolding her. But Jesus said, “Leave her alone! Why are you bothering her? She has done a good deed for Me. For you always have the poor with you, and whenever you want, you can do good to them; but you do not always have Me. She has done what she could; she has anointed My body beforehand for the burial. Truly I say to you, wherever the gospel is preached in the entire world, what this woman has done will also be told in memory of her.”' (Mark 14:3-9)
-- Give up waht's good to find what's best
+- Give up what's good to find what's best
 - Use (dedicate) the best of your first fruits for the Lord, not your own purposes
 - The disciples wanted to use the oil for their own purposes
 - You set aside many resources to be used later for your own purposes, but that is in vain b/c you don't use them later, so just do what God tells you to do w/ the and actually achieve something
+
+>'They were delighted when they heard this, and promised to give him money. And he began seeking how to betray Him at an opportune time. Then Judas Iscariot, who was one of the twelve, went off to the chief priests in order to betray Him to them.' (Mark 14:10-11)
+- You wait for an ideal time to do evil
+- you premediate it
+- Do not hide your darkness in darkness, expose it to the light and confess it so it can be cleansed
+- Nothing is worth betraying the Lord by loving it more than Him
