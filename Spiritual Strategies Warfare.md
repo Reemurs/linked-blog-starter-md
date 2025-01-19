@@ -1913,13 +1913,15 @@ Spirit intercedes for us (Romans 8:26)
 >'You ask and do not receive, because you ask with the wrong motives, so that you may spend what you request on your pleasures.' (James 4:3)
 - Power hungry, manipulative prayers: James 4:2-3
 - Wrong treatment of marriage partner: I Peter 3:7
--Self-righteousness: Luke 18:10-14
--Unbelief: James 1:6-7
--Not abiding in Christ and His Word: John 15:7
--Lack of compassion: Proverbs 21:13\
--Hypocrisy, pride, meaningless repetition: Matthew 6:5; Job 35:12-13
--Not asking according to the will of God: James 4:2-3
--Not asking in Jesus' name: John 16:24
+- Self-righteousness (not being humble): Luke 18:10-14
+- Unbelief: James 1:6-7
+- Not abiding in Christ and His Word: John 15:7
+- Lack of compassion: Proverbs 21:13
+- Hypocrisy, pride, meaningless repetition: Matthew 6:5; Job 35:12-13
+- Not asking according to the will of God: James 4:2-3
+-Not asking in Jesus' name:
+>'Until now you have asked for nothing in My name; ask and you will receive, so that your joy may be made full.' (John 16:24)
+- 
 -Satanic demonic hindrances: Daniel 10:10-13; Ephesians 6:12
 -Not seeking first the Kingdom: It is only when you seek first the Kingdom of God that you
 are promised the "other things": Matthew 6:33
