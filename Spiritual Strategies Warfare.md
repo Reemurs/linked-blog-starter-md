@@ -1848,3 +1848,29 @@ Spirit intercedes for us (Romans 8:26)
 ###### Model Prayer
 ![![remote-blog/#*Table]]
 #### How to Pray
+- Pray to God: 
+>'Listen to the sound of my cry for help, my King and my God, For to You I pray.' (Psalm 5:2)
+	- God is the one we rely on
+Empty repetition is forbidden, but earnest repetition is not: Matthew 6:7; Daniel 6:10;
+Luke 11:5-13; 18:1-8
+>'“And when you are praying, do not use thoughtless repetition as the Gentiles do, for they think that they will be heard because of their many words. So do not be like them; for your Father knows what you need before you ask Him.' (Matthew 6:7-8)
+	- 
+-You sin by neglecting to pray for others: I Samuel 12:23
+-Pray with understanding (in a known tongue): Ephesians 6:18
+-Pray in the Spirit: Romans 8:26; Jude 20
+-Pray according to the will of God: I John 5:14-15
+-Pray in secret: Matthew 6:6
+-Quality rather than quantity is stressed. Prayer is not successful because of "much speaking":
+Matthew 6:7
+-Pray always: Luke 21:36; Ephesians 6:18
+-Pray continually: Romans 12:12
+-Pray without ceasing: I Thessalonians 5:17
+-Pray to the Father in the name of Jesus: John 15:16
+-With a watchful attitude: I Peter 4:7
+-Pray according to the example of the model prayer: Matthew 6:9-13
+-Pray with a forgiving spirit: Mark 11:25
+-Pray with humility: Matthew 6:7
+-Sometimes accompany prayer with fasting: Matthew 17:21
+-Pray fervently: James 5:16; Colossians 4:12
+-Pray with submission to God: Luke 22:42
+-Use the strategies of binding and loosing in prayer: Matthew 16:19
