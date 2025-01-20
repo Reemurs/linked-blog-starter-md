@@ -171,3 +171,7 @@ Love comes from faith; love that comes from faith will always be pure:
 	- Even if you do not get an answer in the timeframe in which you think you need one, God knows when is the right time to deliver it & he will give one to you (as long as you are not doing it selfishly, do not have a hard heart, are not going against his will by asking for something that he already said you can't have, and other hinderances)
 		- do not worry if you don't get answer. in that case, you did not need one anyways and God will deal with your situation in his own way (denied it for a higher purpose, God will give you something better than what you wanted, remember Charles Stanley was denied from going to one church and instead was made to go to another church where he became the great preacher that he was)
 			- Don't worry if you don't know why your prayer is unanswered or how to resolve it. God will handle it for you & he promised to perfect you, so you will continue to grow so whatever was hindering you spiritually won't be an issue anymore (or you'll eventually learn what it was & be able to fix it, even if it takes a long time, God will be with you every step of the way, even if you stumble {he will be there to pick you back up})
+
+>'And Judas, who was betraying Him, said, “Surely it is not I, Rabbi?” Jesus said to him, “You have said *it* yourself.”' (Matthew 26:25)
+- how do you know what Jesus says if he talks so cryptic
+- he knows what is in your heart & you know what to do to resolve it (draw near to him)
