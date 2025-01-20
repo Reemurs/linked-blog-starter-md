@@ -174,4 +174,15 @@ Love comes from faith; love that comes from faith will always be pure:
 
 >'And Judas, who was betraying Him, said, “Surely it is not I, Rabbi?” Jesus said to him, “You have said *it* yourself.”' (Matthew 26:25)
 - how do you know what Jesus says if he talks so cryptic
+	- Judas already said that he would betray Jesus when he was talking to the priests
+	- the phrase "not I?" can be interpreted diif ways?
+	- why would he say "not I" if it was him?
 - he knows what is in your heart & you know what to do to resolve it (draw near to him)
+
+>'And immediately Judas went up to Jesus and said, “Greetings, Rabbi!” and kissed Him. But Jesus said to him, “Friend, do what you have come for.” Then they came and laid hands on Jesus and arrested Him.' (Matthew 26:49-50)
+- we are friends of Jesus
+- Why did Jesus call his betrayer a friend? he does not lie.
+
+>'And behold, one of those who were with Jesus reached and drew his sword, and struck the slave of the high priest and cut off his ear. Then Jesus said to him, “Put your sword back into its place; for all those who take up the sword will perish by the sword.' (Matthew 26:51-52)
+- We ar ethe pecae keepers, even in the face of our enemies
+- Do not harm your enemy, ble
