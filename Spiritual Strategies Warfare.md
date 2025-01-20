@@ -1986,3 +1986,7 @@ It is powerful:
 >'far above all rule and authority and power and dominion, and every name that is named, not only in this age but also in the one to come.' (Ephesians 1:21)
 
 >'For this reason also God highly exalted Him, and bestowed on Him the name which is above every name, so that at the name of Jesus every knee will bow , of those who are in heaven and on earth and under the earth, and that every tongue will confess that Jesus Christ is Lord, to the glory of God the Father.' (Philippians 2:9-11)
+
+>'For we do not have a high priest who cannot sympathize with our weaknesses, but One who has been tempted in all things just as we are, yet without sin. Therefore let’s approach the throne of grace with confidence, so that we may receive mercy and find grace for help at the time of our need.' (Hebrews 4:15-16)
+- Jesus has the winning strat & we can safely approach him for the strength to defeat temptation since he is understanding
+
