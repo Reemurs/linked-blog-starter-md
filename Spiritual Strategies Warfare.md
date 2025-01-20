@@ -1990,3 +1990,6 @@ It is powerful:
 >'For we do not have a high priest who cannot sympathize with our weaknesses, but One who has been tempted in all things just as we are, yet without sin. Therefore let’s approach the throne of grace with confidence, so that we may receive mercy and find grace for help at the time of our need.' (Hebrews 4:15-16)
 - Jesus has the winning strat & we can safely approach him for the strength to defeat temptation since he is understanding
 
+>'Or do you think that I cannot appeal to My Father, and He will at once put at My disposal more than twelve legions of angels? How then would the Scriptures be fulfilled, which say that it must happen this way?”' (Matthew 26:53-54)
+- said when disciples foght back against those taking Jesus to arrest him
+- trust in God's plan

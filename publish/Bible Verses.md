@@ -184,5 +184,6 @@ Love comes from faith; love that comes from faith will always be pure:
 - Why did Jesus call his betrayer a friend? he does not lie.
 
 >'And behold, one of those who were with Jesus reached and drew his sword, and struck the slave of the high priest and cut off his ear. Then Jesus said to him, “Put your sword back into its place; for all those who take up the sword will perish by the sword.' (Matthew 26:51-52)
-- We ar ethe pecae keepers, even in the face of our enemies
-- Do not harm your enemy, ble
+- We are the peace keepers, even in the face of our enemies
+- Do not harm your enemy if Jesus did not tell you to, bless them
+- Also, what choice did the slave have in this? It is easy to harm others when you try to target the enemy
