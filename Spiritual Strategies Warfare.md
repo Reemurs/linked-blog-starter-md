@@ -1993,3 +1993,5 @@ It is powerful:
 >'Or do you think that I cannot appeal to My Father, and He will at once put at My disposal more than twelve legions of angels? How then would the Scriptures be fulfilled, which say that it must happen this way?”' (Matthew 26:53-54)
 - said when disciples foght back against those taking Jesus to arrest him
 - trust in God's plan
+
+>
