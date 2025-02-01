@@ -2000,3 +2000,5 @@ It is powerful:
 >“When He had disarmed the rulers and authorities, He made a public display of them, having triumphed over them through Him.” (Colossians 2:15)
 - Jesus has & does triumph over evil: the principalities are nothing compared to his power
 
+>'The Lord of armies has sworn, saying, “Certainly, just as I have intended, so it has happened, and just as I have planned, so it will stand,' Isaiah 14:24)
+- God's plans are established & nothing can shake them -> God's purpose for your life has been pre-ordained before your birth and nothing you do can mess that up -> when the spiritual battle gets rough
