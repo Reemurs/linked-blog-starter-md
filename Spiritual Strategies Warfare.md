@@ -2027,3 +2027,12 @@ Falling on the face: Numbers 16:22; Joshua 5:14; I Chronicles
 Spreading forth the hands: Isaiah 1:15; II Chronicles 6:13
 Lifting up the hands: Psalms 28:2; Lamentations 2:19; I Timothy 2:8
 
+**Common problems you will need to overcome in order to pray:**
+Lack of time
+Distractions
+Tiredness
+Lack of desire
+
+**organize prayer; promises about praying; fasting; scorpion natural ex**
+# Mobilization
+**Def:** put in state of readiness 4 active military service -> being deployed in God's army
