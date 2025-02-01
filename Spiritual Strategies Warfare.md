@@ -2036,3 +2036,9 @@ Lack of desire
 **organize prayer; promises about praying; fasting; scorpion natural ex**
 # Mobilization
 **Def:** put in state of readiness 4 active military service -> being deployed in God's army
+
+>'neither give place to the devil.' (Ephesians 4:27 KJV)
+- desires contrary to God (-> temptation) are not allowed & immediately thrown out 
+
+
+
