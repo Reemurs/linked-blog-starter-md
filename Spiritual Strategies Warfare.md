@@ -2005,4 +2005,25 @@ It is powerful:
 ### Further Study
 Jesus's purpose:  Luke 4:18-19; 4:43; 19:10; 24:46-49; John 6:38; 9:4; 12:46; 18:37; John 3:16-18; Ephesians 1:9-10
 
-Satan targets those close to Jesus:
+**Satan targets those close to Jesus:**
+Peter+Judas stories [return_christ]
+
+**Study more about worship:** Psalms 5:7; 22:27; 29:2; 45:11; 66:4; 86:9; 95:6; 96:9
+97:7; 99:5,9; Exodus 34:14; I Chronicles 16:29; Matthew 15:9; Mark 7:7; John 4:23-
+24; Philippians 3:3
+
+**Answers to prayer are granted:**
+Immediately at times: Isaiah 65:24; Daniel 9:21-23
+Delayed at times: Luke 18:7
+At times, different from our desires: II Corinthians 12:8-9
+Beyond our expectations: Jeremiah 33:3; Ephesians 3:20
+
+**Different postures may be used in prayer:**
+Standing: I Kings 8:22; Mark 11:25
+Bowing down: Psalms 95:6
+Kneeling: II Chronicles 6:13; Psalms 95:6; Luke 22:41; Acts 20:36
+Falling on the face: Numbers 16:22; Joshua 5:14; I Chronicles
+21:16; Matthew 26:39
+Spreading forth the hands: Isaiah 1:15; II Chronicles 6:13
+Lifting up the hands: Psalms 28:2; Lamentations 2:19; I Timothy 2:8
+
