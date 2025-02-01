@@ -1249,14 +1249,11 @@ They will be God’s kingdoms soon:
   
 
 **Start of Sin**
-
 Adam & Eve had dominion over the world: control, guide its systems & inhabitants according to God’s will. Lost dominion when they sinned.
-
-  
 
 When Jesus was crucified for the sins of all mankind and resurrected from the dead, He reclaimed the world. He pronounced judgment on the spiritual forces of evil:
 
-“When He had disarmed the rulers and authorities, He made a public display of them, having triumphed over them through Him.” (Colossians 2:15)
+>“When He had disarmed the rulers and authorities, He made a public display of them, having triumphed over them through Him.” (Colossians 2:15)
 
   
 
@@ -1999,3 +1996,8 @@ It is powerful:
 - He does not need protection because anything that happens is a part of his plan
 - Remember verse in proverbs that God sways the hearts of kings like how he seats the direction of the rivers
 - Conclusion: do not worry when things are dire b/c that is exactly how God wants it
+
+>'Jesus answered him, “==You would have no authority over Me at all, if it had not been given to you from above==; for this reason the one who handed Me over to you has the greater sin.”' (John 19:11)
+- Evil cannot overcome good if God does not allow it
+	- If it does, do not worry b/c God has his plans in control
+
