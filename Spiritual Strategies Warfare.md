@@ -2001,4 +2001,8 @@ It is powerful:
 - Jesus has & does triumph over evil: the principalities are nothing compared to his power
 
 >'The Lord of armies has sworn, saying, “Certainly, just as I have intended, so it has happened, and just as I have planned, so it will stand,' Isaiah 14:24)
-- God's plans are established & nothing can shake them -> God's purpose for your life has been pre-ordained before your birth and nothing you do can mess that up -> when the spiritual battle gets rough
+- God's plans are established & nothing can shake them -> God's purpose for your life has been pre-ordained before your birth and nothing you do can mess that up -> when the spiritual battle gets rough, know that Satan's attacks on your life/heart can't overcome God's purpose for you & He promised to help/get you through it
+### Further Study
+Jesus's purpose:  Luke 4:18-19; 4:43; 19:10; 24:46-49; John 6:38; 9:4; 12:46; 18:37; John 3:16-18; Ephesians 1:9-10
+
+Satan targets those close to Jesus:
