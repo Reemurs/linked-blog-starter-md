@@ -1997,4 +1997,5 @@ It is powerful:
 >“Jesus answered, “My kingdom is not of this world. If My kingdom were of this world, My servants would be fighting so that I would not be handed over to the Jews; but as it is, My kingdom is not of this realm.”” (John‬ ‭18‬:‭36)
 - His servants are not fighting because he is greater than the world
 - He does not need protection because anything that happens is a part of his plan
-- Remember verse 
+- Remember verse in proverbs that God sways the hearts of kings like how he seats the direction of the rivers
+- Conclusion: do not worry when things are dire b/c that is exactly how God wants it
