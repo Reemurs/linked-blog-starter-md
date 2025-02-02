@@ -2229,4 +2229,8 @@ Increase faith:
 - Regenerated mind & transformed life
 - Satan desperately fights for control of the mind: undisciplined mind = easy prey to sinful deceptions of enemy
 - \= hope of salvation (I Thess 5:8)
-- Saved from guild & penalty of past sin = saved from the pwr of sin in present\\
+	- future -> return of Jesus: hope of it strengthens mind v. Satanic attacks
+>'He made known to us the mystery of His will, according to His good pleasure which He set forth in Him, regarding His plan of the fullness of the times, to bring all things together in Christ, things in the heavens and things on the earth.' (Ephesians 1:9-10)
+- Saved from guilt & penalty of past sin = saved from the pwr of sin in present
+	- belief in this = faith = confidence in God & victory
+### Sword of Spirit = Word 
