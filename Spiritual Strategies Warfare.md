@@ -2131,4 +2131,15 @@ to an "Israel.”"
 - Many skip submission -> just resist & fail by their own strength
 - It is the humble, not the arrogant that overcome the enemy
 - resist = stand firm against and oppose the enemy at every point
-- don
+- don't go looking for demos, but resist them when they apporach
+
+>Be sober, be vigilant; because your adversary the Devil, as a roaring lion, walketh about, seeking whom he may devour. Whom resist steadfast in the faith, knowing that the same afflictions are accomplished in you brethren that are in the world. (I Peter 5:8-9 KJV)
+- resist in faith = on authority of God's word
+
+Ephesians 4:27 – Do not leave room for Satan to operate in your life
+### Recover
+>And that they may recover themselves out of the snare of the devil, who are taken captive by him at his will. (II Timothy 2:26 KJV)
+### Abstain from Fleshly Lusts
+>Dearly beloved, I beseech you as strangers and pilgrims, abstain from fleshly lusts which war against the soul. (I Peter 2:11 KJV)
+
+>Abstain from all appearance of evil. (I Thessalonians 5:22 KJV)
