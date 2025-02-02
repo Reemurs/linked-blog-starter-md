@@ -2157,11 +2157,13 @@ defend what is rightfully yours (Ephesians 6:14)
 >'Therefore, since we also have such a great cloud of witnesses surrounding us, let’s rid ourselves of every obstacle and the sin which so easily entangles us, and let’s run with endurance the race that is set before us,' (Hebrews 12:1)
 
 >'Therefore, ridding yourselves of all filthiness and all that remains of wickedness, in humility receive the word implanted, which is able to save your souls.'(James 1:21)
-### Put on Armor of God
+## Put on Armor of God
 >'The night is almost gone, and the day is near. Therefore let’s rid ourselves of the deeds of darkness and put on the armor of light. But put on the Lord Jesus Christ, and make no provision for the flesh in regard to its lusts.' (Romans 13:12, 14)
 - put it on once & leave it for the rest of ur life; not on = vulnerable to enemy
 - make sure u have all pieces on: "Some of us are preoccupied with but one piece of God's armor to the extent that others are neglected. You must have on the whole armor or you may find yourself being an expert in the use of the "sword of the Spirit" and still defeated because you have forgotten the shield of faith"
 
->'Therefore, take up the full armor of God, so that you will be able to resist on the evil day, and having done everything, to stand firm. Stand firm therefore, ==having== ==belted your waist with truth==, and having put on the ==breastplate of righteousness==, and having strapped on your ==feet the preparation of the gospel of peace==; in addition to all, taking up the shield of faith with which you will be able to extinguish all the flaming arrows of the evil one. And take the helmet of salvation and the sword of the Spirit, which is the word of God.' (Ephesians 6:13-17)
+>'Therefore, take up the full armor of God, so that you will be able to resist on the evil day, and having done everything, to stand firm. Stand firm therefore, ==having== ==belted your waist with truth==, and having put on the ==breastplate of righteousness==, and having strapped on your ==feet the preparation of the gospel of peace==; in addition to all, ==taking up== the ==shield of faith== with which you will be able to extinguish all the flaming arrows of the evil one. And take the ==helmet of salvation== and the ==sword of the Spirit==, which is the word of God.' (Ephesians 6:13-17)
 - why? to stand against "deceit, cunning, craftiness" of devil
-- "having" + "taking up" = 
+- "having" + "taking up" = Chronological order? Gotten when saved + do in present?
+### Belt of Truth
+Holds the other pieces of armor in place; truth of God's Word = what rest is attatched to
