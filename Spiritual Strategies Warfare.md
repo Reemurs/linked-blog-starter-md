@@ -2072,4 +2072,10 @@ Ephesians 6:12 – v. spiritual forces of world
 - Not a team sport: no other beleiver can take ur place in indiv. battle
 ### Stalling
 - Lose points when not engage w/ & avoiding opponent
-- Some believers spend whole lives stalled in confrontation w/ enemy & never aggressively wrestle to gain victory
+- Some believers spend whole lives stalled in confrontation w/ enemy & never try to claim the victory through aggressive fight
+	- remember God gives u the victory & he already won war but u still have to fight battles
+	- do not hold back, use all your might against the enemy when God tells u too b/c Satan won't hold back when God lets him
+### Balance/Temperance
+- Difficult to regain once lost when fighting
+- Emphasize proper areas
+- Mental balance must be lost before phys. Balance by surprise attack: enemy distracts you
