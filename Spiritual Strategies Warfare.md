@@ -2279,3 +2279,7 @@ We are commanded to fight:
 
 Fight w/ Purpose/Diligence/Intelligence
 >'Therefore I run in such a way as not to run aimlessly; I box in such a way, as to avoid hitting air;' (1 Corinthians 9:26)
+## Strategies
+### Prayer
+- Not personal, but intercession (for leaders/nations/ppl)
+- Praise/worship = ambush in spirit world
