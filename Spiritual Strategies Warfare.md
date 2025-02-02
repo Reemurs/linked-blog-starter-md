@@ -2165,5 +2165,14 @@ defend what is rightfully yours (Ephesians 6:14)
 >'Therefore, take up the full armor of God, so that you will be able to resist on the evil day, and having done everything, to stand firm. Stand firm therefore, ==having== ==belted your waist with truth==, and having put on the ==breastplate of righteousness==, and having strapped on your ==feet the preparation of the gospel of peace==; in addition to all, ==taking up== the ==shield of faith== with which you will be able to extinguish all the flaming arrows of the evil one. And take the ==helmet of salvation== and the ==sword of the Spirit==, which is the word of God.' (Ephesians 6:13-17)
 - why? to stand against "deceit, cunning, craftiness" of devil
 - "having" + "taking up" = Chronological order? Gotten when saved + do in present?
-### Belt of Truth
-Holds the other pieces of armor in place; truth of God's Word = what rest is attatched to
+### Belt of Truth (of God's word) 
+**Purpose**: Holds the other pieces of armor in place; Protects you from lies/doctrinal errors of enemy
+
+Satan's 1st attack on man = truth
+>'The woman said to the serpent, “From the fruit of the trees of the garden we may eat; but from the fruit of the tree which is in the middle of the garden, God has said, ‘You shall not eat from it or touch it, or you will die.’” The serpent said to the woman, “You certainly will not die!' (Genesis 3:2-4)
+#### Truth Definition
+Jesus said, "I am the truth." John 14:6
+-The Holy Spirit is the "Spirit of truth."John 14:17
+-God is truth. Romans 3:4
+-God's Word is truth. Psalms 119:151
+-The Gospel is truth. Colossians 1:5
