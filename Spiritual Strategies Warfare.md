@@ -2182,4 +2182,11 @@ Satan's 1st attack on man = truth
 - The Gospel is truth.
 >'because of the hope reserved for you in heaven, of which you previously heard in the word of truth, the gospel' (Colossians 1:5)
 ### Breastplate of Righteousness
-Not ur righteousness, but the covering of the righteousness of Christ
+Not ur righteousness, but the covering of the righteousness of Christ:
+>'and may be found in Him, not having a righteousness of my own derived from the Law, but that which is through faith in Christ, the righteousness which comes from God on the basis of faith,' (Philippians 3:9)
+
+Cannot face the enemy w/o the protection of Christ's righteousness
+>'in the word of truth, and in the power of God; by the weapons of righteousness for the right hand and the left,' (2 Corinthians 6:7)
+
+Relates to the righteousness of heart?
+###
