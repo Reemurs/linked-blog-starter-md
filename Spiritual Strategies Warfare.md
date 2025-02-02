@@ -2264,9 +2264,9 @@ How would I use shield of faith to defend myself from these?
 	- remember you could covet using social media
 - Pride: I am nothing w/o God; God has every right to tell me what to do b/c he saved me & he is ht e only one who knows what is going on & what to do about it (+ he made the situation)
 - Doubt: If God was not who he said he was (as powerful, as good), the vast ocean would not be so diverse & beautiful & interesting, I would not have been born into a loving and well-off family (others are not, but this is part of God's paln/development for them, papi would not have appreciated his riches + God as much if he had been born into them), I would have much worse negative thought patterns about who I am (hate self + worthless), I would have made no progress in this, Israel would still be slaves to egypt
-- Discouragement: God put me on this earth for a pru
-- Depression:
-- Lust:
+- Discouragement: God put me on this earth for a purpose & he will complete that purpose, he only harvest those who are ripe & he promised to make me ripe b/c I reamain in the vine b/c nothing could ever separate me from him, even if I achieve nothing I still would have done what God wanted me to do & I will be satisfied b/c I pleased Him & that's what matters most
+- Depression: It happens sometimes, remember David after he had sinned & the prophets when Israel had sinned, God will lift me out of it, he gives me hope for the future
+- Lust: Sexual immoraltiy is wrong & gross; it is a sin against the body & you are using the most intimate moments for sin & spoinling them
 - Greed:
 - Anger:
 # t
