@@ -2066,9 +2066,10 @@ Ephesians 6:12 – v. spiritual forces of world
 - Learn rules & follow them carefully
 - proper diet: always pray & read word
 - Train to avoid losing b/c of fatigue
-- Anticipate attacks by knowing devil's strategies so you r prepared so they will be less succussful
+- Anticipate attacks by knowing devil's strategies so you r prepared so they will be less successful
 ### Continuous struggle
 - Not time outs: must always be on guard b/c Satan never rests
+	- Satan always counterattack w/ a move of his own when u make a move for God
 - Intimate, face to face, personal contact w/ enemy
 - Not a team sport: no other beleiver can take ur place in indiv. battle
 ### Stalling
@@ -2083,4 +2084,8 @@ Ephesians 6:12 – v. spiritual forces of world
 	- How? "By leading an opponent to believe some move is about to be attempted, he will try to avoid the imagined danger and leave himself open to the actual attack"
 		- Satan "upsets your mental balance by distracting attacks and while you are fearfully focused on these, he launches his intended assault in another area of your life"
 	- + distract w/ desires/pleasures/troubles
-### 
+### Baiting
+- enemy tempts u to move into position where u are weak to attack
+- remember Satan is the one in the weak position b/c your power is greater than his; use this advantage given to u by God
+### Mobility
+- mobile opponent = dangerous 
