@@ -2045,7 +2045,7 @@ Lack of desire
 **Offensive:** Make decisions first & know enemy & his strategies to gain territory
 - needed to spread gospel
 - Weapons unused are useless. Be willing to use what God gave u
->'Now Elisha was fallen sick of his sickness whereof he died. And Joash the king of Israel came down unto him, and wept over his face, and said, O my father, my father, the chariot of Israel, and the horsemen thereof. And Elisha said unto him, ==Take bow and arrows==. And he took unto him bow and arrows. And he said to the king of Israel, ==Put thine hand upon the bow==. And he put his hand upon it: and ==Elisha put his hands upon the king's hands==. And he said, ==Open the window eastward==. And he opened it . Then ==Elisha said, Shoot. And he shot==. And he said, The arrow of the LORD's deliverance, and the arrow of deliverance from Syria: for t==hou shalt smite the Syrians in Aphek, till thou have consumed them==. And he said, Take the arrows. And he took them. And he said unto the king of Israel, Smite upon the ground. And he smote thrice, and stayed. And the man of God was wroth with him, and said, ==Thou shouldest have smitten five or six times; then hadst thou smitten Syria till thou hadst consumed it: whereas now thou shalt smite Syria but thrice==.' (2 Kings 13:14-19)
+>'Now Elisha was fallen sick of his sickness whereof he died. And Joash the king of Israel came down unto him, and wept over his face, and said, O my father, my father, the chariot of Israel, and the horsemen thereof. And Elisha said unto him, ==Take bow and arrows==. And he took unto him bow and arrows. And he said to the king of Israel, ==Put thine hand upon the bow==. And he put his hand upon it: and ==Elisha put his hands upon the king's hands==. And he said, ==Open the window eastward==. And he opened it . Then ==Elisha said, Shoot. And he shot==. And he said, The arrow of the LORD's deliverance, and the arrow of deliverance from Syria: for t==hou shalt smite the Syrians in Aphek, till thou have consumed them==. And he said, Take the arrows. And he took them. And he said unto the king of Israel, Smite upon the ground. And he smote thrice, and stayed. And the man of God was wroth with him, and said, ==Thou shouldest have smitten five or six times; then hadst thou smitten Syria till thou hadst consumed it: whereas now thou shalt smite Syria but thrice==.' (2 Kings 13:14-19 KJV)
 - don't hesitate, do what the Lord tells you (seize the opportunity/day) or you will miss your chance
 - take up weapons = show intention to fight
 - put hands over weapon & have God's hands over your hands
@@ -2146,12 +2146,14 @@ Ephesians 4:27 – Do not leave room for Satan to operate in your life
 ### Stand Ur Ground
 defend what is rightfully yours (Ephesians 6:14)
 ### Test the Spirits
->'Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world.' (1 John 4:1)
+>'Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world.' (1 John 4:1 KJV)
 ### Shun False Teachers
->'If there come any unto you, and bring not this doctrine, receive him not into your house, neither bid him God speed: for he that biddeth him God speed is partaker of his evil deeds.' (2 John 1:10-11)
+>'If there come any unto you, and bring not this doctrine, receive him not into your house, neither bid him God speed: for he that biddeth him God speed is partaker of his evil deeds.' (2 John 1:10-11 KJV)
 - do not even wish false Christians well on their journey or else you will participate in their evil
 - defend ur home from enemy attack
 ### Lay Aside Worldy Affairs
 ...that prevent you from being a good soldier
 
 >'Thou therefore endure hardness, as a good soldier of Jesus Christ. No man that warreth entangleth himself with the affairs of this life; that he may please him who hath chosen him to be a soldier.' (2 Timothy 2:3-4)
+
+>'Therefore, since we also have such a great cloud of witnesses surrounding us, let’s rid ourselves of every obstacle and the sin which so easily entangles us, and let’s run with endurance the race that is set before us,' (Hebrews 12:1)
