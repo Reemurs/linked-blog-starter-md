@@ -2199,7 +2199,13 @@ firm trust & confidence in God that protcts your whole being
 - why would you run off to sin if God provides all that you need?
 - Why would be frozen in fear if God has assured you of victory?
 - Gives sense of calm + peace
+- Constant application of God's Word to the issues of life: seeing the world through Jesus's perspective
 
 Flaming arrows = doubt + unbelief; etc.
 
 >'For whoever has been born of God overcomes the world; and this is the victory that has overcome the world: our faith.' (1 John 5:4)
+- faith is what enables you to overcome the evil forces of the world
+
+>'But since we are of the day, let’s be sober, having put on the breastplate of faith and love, and as a helmet, the hope of salvation.' (1 Thessalonians 5:8)
+- most effective when combined w/ God's love
+	- know he loves you + does what is best/just for you/others & loving God means you obey him
