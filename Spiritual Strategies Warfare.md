@@ -2058,3 +2058,10 @@ Lack of desire
 	- God's goal for u is total victory in every area of ur life, do not settle for partial victory & limit God b/c you did not allow him to work in ur life
 - win 1st in secret chamber: what happened in there determines outcome of battle w/ Syria; what happens in secret {time alone w/ God} determines victories in actual battles of life
 
+Holy Spirit: 
+"The gifts of the word of knowledge and the word of wisdom provide supernatural revelation for spiritual warfare. The gift of discerning of spirits reveals the deception of the enemy."
+## Nat. Ex.: Wrestling
+Ephesians 6:12 – v. spiritual forces of world
+### Prep & train
+- Learn rules & follow them carefully
+- proper diet: always pray & read word
