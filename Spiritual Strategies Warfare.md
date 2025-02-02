@@ -2233,4 +2233,11 @@ Increase faith:
 >'He made known to us the mystery of His will, according to His good pleasure which He set forth in Him, regarding His plan of the fullness of the times, to bring all things together in Christ, things in the heavens and things on the earth.' (Ephesians 1:9-10)
 - Saved from guilt & penalty of past sin = saved from the pwr of sin in present
 	- belief in this = faith = confidence in God & victory
-### Sword of Spirit = Word 
+### Sword of Spirit = Word of God
+already learned how Jesus used it
+Don't argue w/ the devil, just quote scripture v. him
+- he can use logic to convince you to sin
+- anything against the word of God is sin and falsehold, so anything he says against that is clearly unconvincing & wrong & undesirable (b/c sin = death)
+### Prayer
+Ephesians 6:18
+# t
