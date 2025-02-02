@@ -2195,4 +2195,11 @@ Relates to the righteousness of heart?
 - Protects ur will from the spirit of the enemy that leads you into the wrong paths
 - enables you to stand firm v. enemy (v. 14)
 ### Shield of Faith
-firm trust & confi
+firm trust & confidence in God that protcts your whole being
+- why would you run off to sin if God provides all that you need?
+- Why would be frozen in fear if God has assured you of victory?
+- Gives sense of calm + peace
+
+Flaming arrows = doubt + unbelief; etc.
+
+>'For whoever has been born of God overcomes the world; and this is the victory that has overcome the world: our faith.' (1 John 5:4)
