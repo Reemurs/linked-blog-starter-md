@@ -2143,3 +2143,7 @@ Ephesians 4:27 – Do not leave room for Satan to operate in your life
 >Dearly beloved, I beseech you as strangers and pilgrims, abstain from fleshly lusts which war against the soul. (I Peter 2:11 KJV)
 
 >Abstain from all appearance of evil. (I Thessalonians 5:22 KJV)
+### Stand Ur Ground
+defend what is rightfully yours (Ephesians 6:14)
+### Test the Spirits
+>'Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world.' (1 John 4:1)
