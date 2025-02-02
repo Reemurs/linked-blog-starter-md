@@ -2151,9 +2151,15 @@ defend what is rightfully yours (Ephesians 6:14)
 >'If there come any unto you, and bring not this doctrine, receive him not into your house, neither bid him God speed: for he that biddeth him God speed is partaker of his evil deeds.' (2 John 1:10-11 KJV)
 - do not even wish false Christians well on their journey or else you will participate in their evil
 - defend ur home from enemy attack
-### Lay Aside Worldy Affairs
+### Abandon Worldly Affairs
 ...that prevent you from being a good soldier
 
 >'Suffer hardship with me, as a good soldier of Christ Jesus. No soldier in active service entangles himself in the affairs of everyday life, so that he may please the one who enlisted him.' (2 Timothy 2:3-4)
 
 >'Therefore, since we also have such a great cloud of witnesses surrounding us, let’s rid ourselves of every obstacle and the sin which so easily entangles us, and let’s run with endurance the race that is set before us,' (Hebrews 12:1)
+
+>'Therefore, ridding yourselves of all filthiness and all that remains of wickedness, in humility receive the word implanted, which is able to save your souls.'(James 1:21)
+### Put on Armor of God
+>'The night is almost gone, and the day is near. Therefore let’s rid ourselves of the deeds of darkness and put on the armor of light. But put on the Lord Jesus Christ, and make no provision for the flesh in regard to its lusts.' (Romans 13:12, 14)
+- put it on once & leave it for the rest of ur life; not on = vulnerable to enemy
+- make sure u have all pieces on: "Some of us are preoccupied with but one piece of God's armor to the extent that others are neglected. You must have on the whole armor or you may find yourself being an expert in the use of the "sword of the Spirit" and still defeated because you have forgotten the shield of faith"
