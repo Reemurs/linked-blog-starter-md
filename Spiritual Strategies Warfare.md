@@ -2167,6 +2167,7 @@ defend what is rightfully yours (Ephesians 6:14)
 - "having" + "taking up" = Chronological order? Gotten when saved + do in present?
 ### Belt of Truth (of God's word) 
 **Purpose**: Holds the other pieces of armor in place; Protects you from lies/doctrinal errors of enemy
+- protects from deception that leads to unrighteousness (sin)
 
 Satan's 1st attack on man = truth
 >'The woman said to the serpent, “From the fruit of the trees of the garden we may eat; but from the fruit of the tree which is in the middle of the garden, God has said, ‘You shall not eat from it or touch it, or you will die.’” The serpent said to the woman, “You certainly will not die!' (Genesis 3:2-4)
@@ -2182,6 +2183,8 @@ Satan's 1st attack on man = truth
 - The Gospel is truth.
 >'because of the hope reserved for you in heaven, of which you previously heard in the word of truth, the gospel' (Colossians 1:5)
 ### Breastplate of Righteousness
+**Purpose**: protects from unrighteousness (sin) that leads to confusion
+
 Not ur righteousness, but the covering of the righteousness of Christ:
 >'and may be found in Him, not having a righteousness of my own derived from the Law, but that which is through faith in Christ, the righteousness which comes from God on the basis of faith,' (Philippians 3:9)
 
@@ -2190,11 +2193,14 @@ Cannot face the enemy w/o the protection of Christ's righteousness
 
 Relates to the righteousness of heart?
 ### Shoes of Preparation Gospel of Peace
+**Purpose:** protects from spiritual confusion (wander away from shepherd) that causes unbelief
+
 - Readiness to advance on battlefield (spirit realm)
 - Willingness to do every good work & spread gospel into all nations
 - Protects ur will from the spirit of the enemy that leads you into the wrong paths
 - enables you to stand firm v. enemy (v. 14)
 ### Shield of Faith
+**Purpose:** protect from unbelief that causes bondage
 firm trust & confidence in God that protcts your whole being
 - why would you run off to sin if God provides all that you need?
 - Why would be frozen in fear if God has assured you of victory?
@@ -2226,6 +2232,8 @@ Increase faith:
 - Looking toward (seeking) God
 >'looking only at Jesus, the originator and perfecter of the faith, who for the joy set before Him endured the cross, despising the shame, and has sat down at the right hand of the throne of God.' (Hebrews 12:2)
 ### Helmet of Salvation
+**Purpose:** protects from bondage of old ways/thoughts
+
 - Regenerated mind & transformed life
 - Satan desperately fights for control of the mind: undisciplined mind = easy prey to sinful deceptions of enemy
 - \= hope of salvation (I Thess 5:8)
@@ -2240,4 +2248,5 @@ Don't argue w/ the devil, just quote scripture v. him
 - anything against the word of God is sin and falsehold, so anything he says against that is clearly unconvincing & wrong & undesirable (b/c sin = death)
 ### Prayer
 Ephesians 6:18
+## Further Study
 # t
