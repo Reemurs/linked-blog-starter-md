@@ -2123,3 +2123,12 @@ Psalm of safety.
 "Be sure when you are wrestling it is not God grappling with
 you to break the spirit of self-sufficiency in order to transform you from a "Jacob"
 to an "Israel.”"
+# Defensive Weapons
+>Put on the whole Armor of God, that ye may be able to stand against the wiles of the Devil. (Ephesians 6:11 KJV)
+## Strategies
+### Submit + Resist
+>Submit yourselves therefore to God. Resist the Devil, and he will flee from you. (James 4:7 KJV)
+- Many skip submission -> just resist & fail by their own strength
+- It is the humble, not the arrogant that overcome the enemy
+- resist = stand firm against and oppose the enemy at every point
+- don
