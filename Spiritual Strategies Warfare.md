@@ -2295,3 +2295,6 @@ Two words for word of God
 	- Jesus used sp. saying when tempted
 	- Knowing all of word = able to recall all of these
 ### Mind of Christ
+>'Therefore, since Christ has suffered in the flesh, arm yourselves also with the same purpose, because the one who has suffered in the flesh has ceased from sin,' (1 Peter 4:1)
+
+>'Have this attitude in yourselves which was also in Christ Jesus,' (Philippians 2:5)
