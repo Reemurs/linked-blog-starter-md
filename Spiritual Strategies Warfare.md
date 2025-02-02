@@ -2172,12 +2172,17 @@ Satan's 1st attack on man = truth
 >'The woman said to the serpent, “From the fruit of the trees of the garden we may eat; but from the fruit of the tree which is in the middle of the garden, God has said, ‘You shall not eat from it or touch it, or you will die.’” The serpent said to the woman, “You certainly will not die!' (Genesis 3:2-4)
 #### Truth Definition
 - Jesus
->'Jesus \*said to him, “I am the way, and the truth, and the life; no one comes to the Father except through Me.' (John 14:6)
-- Holy Spirit is the "Spirit of truth."John 14:17
+>'Jesus \*said to him, “==I am== the way, and ==the truth==, and the life; no one comes to the Father except through Me.' (John 14:6)
+- Holy Spirit = Spirit of truth
 >'the Helper is the Spirit of truth, whom the world cannot receive, because it does not see Him or know Him; but you know Him because He remains with you and will be in you.' (John 14:17)
--God is truth. Romans 3:4
--God's Word is truth. Psalms 119:151
--The Gospel is truth. Colossians 1:5
+- God
+>'Far from it! Rather, God must prove to be true, though every person be found a liar, as it is written: “So that You are justified in Your words, And prevail when You are judged.”' (Romans 3:4)
+- God's Word is truth. Psalms 119:151
+>'You are near, Lord, And all Your commandments are truth.' (Psalm 119:151)
+- The Gospel is truth.
+>'because of the hope reserved for you in heaven, of which you previously heard in the word of truth, the gospel'
+
+Colossians 1:5)
 
 dioajfakjflajslkjaklskjf alksfjlajdflka;sjfdl;ja a aklsfjdlajlfjalskjfdklasf. dasafkdaljfla;dskflad f. 
 jdkasfjdal;kdjfklajfkla
