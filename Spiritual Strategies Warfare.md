@@ -2200,6 +2200,7 @@ firm trust & confidence in God that protcts your whole being
 - Why would be frozen in fear if God has assured you of victory?
 - Gives sense of calm + peace
 - Constant application of God's Word to the issues of life: seeing the world through Jesus's perspective
+- not assumption/presumption, but fact based of God's word (how you learn who God is)
 
 Flaming arrows = doubt + unbelief; etc.
 
@@ -2213,3 +2214,10 @@ Flaming arrows = doubt + unbelief; etc.
 >'You have also given me the shield of Your salvation, And Your right hand upholds me; And Your gentleness makes me great.' (Psalm 18:35)
 - faith based on salvation: w/o faith you cannot receive salvation by having a grasp on truth (you would dismiss it or think it's foolish)
 	- w/o faith you dismiss God & ignore the Holy Spirit's directions
+	- w/o faith can't go forth w/ gospel of peace (why stand/fight for something you don't believe in)
+	- w/o faith can't claim Christ's righteousness or use sword of spirit (b/c you don't believe in word of God)
+
+Increase faith:
+- Hearing God's word
+>'So faith comes from hearing, and hearing by the word of Christ.' (Romans 10:17)
+- 
