@@ -2066,6 +2066,7 @@ Ephesians 6:12 – v. spiritual forces of world
 - Learn rules & follow them carefully
 - proper diet: always pray & read word
 - Train to avoid losing b/c of fatigue
+- Anticipate attacks by knowing devil's strategies so you r prepared so they will be less succussful
 ### Continuous struggle
 - Not time outs: must always be on guard b/c Satan never rests
 - Intimate, face to face, personal contact w/ enemy
@@ -2078,4 +2079,8 @@ Ephesians 6:12 – v. spiritual forces of world
 ### Balance/Temperance
 - Difficult to regain once lost when fighting
 - Emphasize proper areas
-- Mental balance must be lost before phys. Balance by surprise attack: enemy distracts you
+- Mental balance must be lost before phys. Balance: enemy distracts u then surprise attack
+	- How? "By leading an opponent to believe some move is about to be attempted, he will try to avoid the imagined danger and leave himself open to the actual attack"
+		- Satan "upsets your mental balance by distracting attacks and while you are fearfully focused on these, he launches his intended assault in another area of your life"
+	- + distract w/ desires/pleasures/troubles
+### 
