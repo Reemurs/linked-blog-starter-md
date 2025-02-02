@@ -2256,14 +2256,16 @@ Ephesians 6:18
 - David had much to say about his enemies: Psalms 5:8; 6:10; 8:2; 9:3; 11:2; 15:5; 17:9; 18:3, 17, 20, 26, 34, 37; 27:2; 30:1 31:23; 44:5-6; 56:9; 60:12; 61:3; 95:6; 108:13.
 - Read what God says about your enemies: Exodus 15:6; Matthew 10:36; 13:39; Luke 1:11; 10:19; Acts 2:35; I Corinthians 15:25-26; Colossians 1:21.
 - God is your shield. See Genesis 15:1; Psalms 3:3; 5:12; 28:7; 33:20; 59:11; 84:9,11; 115:9-11; 119:114; 144:2.
-- Exodus 17 nat. ex. w/ rod [return]
-Selfishness:
-Covetousness:
-Pride:
-Doubt:
-Discouragement:
-Depression:
-Lust:
-Greed:
-Anger:
+- Exodus 17 nat. ex. w/ rod [return_Christ], [return_pdf]
+
+How would I use shield of faith to defend myself from these?
+- Selfishness: I do not have to take what I need b/c God will give it to me; remember verse about man not wanting to be rich or poor, he just wants what God allotted for him
+- Covetousness: Same as above
+- Pride: I am nothing w/o God; God has every right to tell me what to do b/c he saved me & he is ht e only one who knows what is going on & what to do about it (+ he made the situation)
+- Doubt: 
+- Discouragement:
+- Depression:
+- Lust:
+- Greed:
+- Anger:
 # t
