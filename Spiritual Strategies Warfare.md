@@ -2147,3 +2147,6 @@ Ephesians 4:27 – Do not leave room for Satan to operate in your life
 defend what is rightfully yours (Ephesians 6:14)
 ### Test the Spirits
 >'Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world.' (1 John 4:1)
+
+>'If there come any unto you, and bring not this doctrine, receive him not into your house, neither bid him God speed: for he that biddeth him God speed is partaker of his evil deeds.' (2 John 1:10-11)
+- do not even wish false Christians well on their journey or else you will be evil yourself
