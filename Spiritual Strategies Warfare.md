@@ -2054,5 +2054,7 @@ Lack of desire
 	- To expose every area of life to failure, defeat, & bondage of enemy (do not go near to temptation, but be vulnerable when God tells you to be {ex. fighting with too few men} b/c he secures the victory {the battle is in his hands}, gains glory by winning when the odds are against you, and protects you {he is your refuge/stronghold})
 - above steps not enough, need to follow command of the Lord to SHOOT
 	- unused weapon useless
-- Know the objective: He should have smote more than 3 times b/c God informed 
+- Know the objective: He should have smote more than 3 times b/c God told him the goal was to completely destroy, not damage the Syrians
+	- God's goal for u is total victory in every area of ur life, do not settle for partial victory & limit God b/c you did not allow him to work in ur life
+- win 1st in secret chamber: what happened in there determines outcome of battle w/ Syria; what happens in secret {time alone w/ God} determines victories in actual battles of life
 
