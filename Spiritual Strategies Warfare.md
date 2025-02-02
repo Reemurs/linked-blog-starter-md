@@ -2076,6 +2076,7 @@ Ephesians 6:12 – v. spiritual forces of world
 - Lose points when not engage w/ & avoiding opponent
 - Some believers spend whole lives stalled in confrontation w/ enemy & never try to claim the victory through aggressive fight
 	- remember God gives u the victory & he already won war but u still have to fight battles
+		- Satan was already jusedn as a loser of the match so do not be afriad of his power; be confident & resist him steadfastly in the faith
 	- do not hold back, use all your might against the enemy when God tells u too b/c Satan won't hold back when God lets him
 ### Balance/Temperance
 - Difficult to regain once lost when fighting
@@ -2094,3 +2095,31 @@ Ephesians 6:12 – v. spiritual forces of world
 ### Recover from fall
 - Remember proverbs said righteous man can fall seven times & still get up
 - Joseph turned disadvantages of being slave/prisoner into advantage by being Godly (ran from temptation, patient w/ angry/wrong ppl)
+## Further Study
+Do not trust in chariots of men (psalms 20:7), but of God: Psalms 68:17; 104:3; Isaiah 19:1; and II Kings 2:11
+
+Satan = destroyer
+John 10:10; I Corinthians 10:10; Matthew 10:28.
+-If you obey God, He will not let the destroyer come in: Exodus 12:23
+-God keeps you from the destruction of Satan: Psalms 17:4
+-Satan is your adversary, the one you fight against: I Peter 5:8.
+-You are not to give him room to operate against you: I Timothy 5:14.
+-If you obey God, He will be an enemy to your adversaries: Exodus 23:22
+
+Ways to win: 
+You can chase the enemy: Leviticus 26:7-8; Deuteronomy 32:30; Joshua 23:10
+-You can have victory: Deuteronomy 7:21; I Chronicles 29:11; Psalms 5:11;
+18:29; 24:8; 91:1; Isaiah 49:19; I Corinthians 15:57; I John 5:4
+-The Lord is your fortress: II Samuel 22:2; Psalms 18:2; 31:3; 71:3; 91:2; 144:2;
+Jeremiah 16:19
+-You have dominion over the enemy: Psalms 8:6; 49:14; 72:8; 119:133; Daniel
+7:27; Ephesians 1:21
+-Safety comes from the Lord: Proverbs 18:10; 21:31; 29:25. Psalms 91 is the
+Psalm of safety.
+-God delivers you from distress: Psalms 25:17; 107:6,13; 19:28
+-You can capture enemy thoughts: II Corinthians 10:5
+-God looses bonds of the enemy: Psalms 116:16; Romans 8:15-21; Galatians 5:1
+
+"Be sure when you are wrestling it is not God grappling with
+you to break the spirit of self-sufficiency in order to transform you from a "Jacob"
+to an "Israel.”"
