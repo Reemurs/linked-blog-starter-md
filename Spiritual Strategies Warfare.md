@@ -2065,3 +2065,11 @@ Ephesians 6:12 – v. spiritual forces of world
 ### Prep & train
 - Learn rules & follow them carefully
 - proper diet: always pray & read word
+- Train to avoid losing b/c of fatigue
+### Continuous struggle
+- Not time outs: must always be on guard b/c Satan never rests
+- Intimate, face to face, personal contact w/ enemy
+- Not a team sport: no other beleiver can take ur place in indiv. battle
+### Stalling
+- Lose points when not engage w/ & avoiding opponent
+- Some believers spend whole lives stalled in confrontation w/ enemy & never aggressively wrestle to gain victory
