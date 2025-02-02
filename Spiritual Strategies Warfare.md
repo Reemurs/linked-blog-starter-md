@@ -2226,3 +2226,7 @@ Increase faith:
 - Looking toward (seeking) God
 >'looking only at Jesus, the originator and perfecter of the faith, who for the joy set before Him endured the cross, despising the shame, and has sat down at the right hand of the throne of God.' (Hebrews 12:2)
 ### Helmet of Salvation
+- Regenerated mind & transformed life
+- Satan desperately fights for control of the mind: undisciplined mind = easy prey to sinful deceptions of enemy
+- \= hope of salvation (I Thess 5:8)
+- Saved from guild & penalty of past sin = saved from the pwr of sin in present\\
