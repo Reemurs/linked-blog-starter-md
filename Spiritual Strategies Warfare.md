@@ -2088,4 +2088,9 @@ Ephesians 6:12 – v. spiritual forces of world
 - enemy tempts u to move into position where u are weak to attack
 - remember Satan is the one in the weak position b/c your power is greater than his; use this advantage given to u by God
 ### Mobility
-- mobile opponent = dangerous 
+- mobile opponent = dangerous opponent
+	- Satan always moving about earth like a lion -> be on guard
+- He wants to stall you & prevent ur moves for God
+### Recover from fall
+- Remember proverbs said righteous man can fall seven times & still get up
+- Joseph turned disadvantages of being slave/prisoner into advantage by being Godly (ran from temptation, patient w/ angry/wrong ppl)
