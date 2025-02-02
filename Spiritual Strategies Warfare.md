@@ -2040,9 +2040,10 @@ Lack of desire
 >'neither give place to the devil.' (Ephesians 4:27 KJV)
 - desires contrary to God (→ temptation) are not allowed & immediately thrown out
 
-**Defensive:** need to know how to defend urself (territory) when Satan strikes
+**Defensive:** need to know how to defend urself (territory) when Satan strike
+- staying comfy in hime/church
 **Offensive:** Make decisions first & know enemy & his strategies to gain territory
-- needed 
+- needed to spread gospel
 
 
 
