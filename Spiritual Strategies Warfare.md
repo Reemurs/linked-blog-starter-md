@@ -2181,3 +2181,5 @@ Satan's 1st attack on man = truth
 >'You are near, Lord, And all Your commandments are truth.' (Psalm 119:151)
 - The Gospel is truth.
 >'because of the hope reserved for you in heaven, of which you previously heard in the word of truth, the gospel' (Colossians 1:5)
+### Breastplate of Righteousness
+Not ur righteousness, but the covering of the righteousness of Christ
