@@ -2220,4 +2220,9 @@ Flaming arrows = doubt + unbelief; etc.
 Increase faith:
 - Hearing God's word
 >'So faith comes from hearing, and hearing by the word of Christ.' (Romans 10:17)
-- 
+- Acting on faith
+>'For in it the righteousness of God is revealed from faith to faith; as it is written: “But the righteous one will live by faith.”' (Romans 1:17)
+	- Give God a chance to show you how He can work in your life
+- Looking toward (seeking) God
+>'looking only at Jesus, the originator and perfecter of the faith, who for the joy set before Him endured the cross, despising the shame, and has sat down at the right hand of the throne of God.' (Hebrews 12:2)
+### Helmet of Salvation
