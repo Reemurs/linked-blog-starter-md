@@ -2209,3 +2209,7 @@ Flaming arrows = doubt + unbelief; etc.
 >'But since we are of the day, let’s be sober, having put on the breastplate of faith and love, and as a helmet, the hope of salvation.' (1 Thessalonians 5:8)
 - most effective when combined w/ God's love
 	- know he loves you + does what is best/just for you/others & loving God means you obey him
+
+>'You have also given me the shield of Your salvation, And Your right hand upholds me; And Your gentleness makes me great.' (Psalm 18:35)
+- faith based on salvation: w/o faith you cannot receive salvation by having a grasp on truth (you would dismiss it or think it's foolish)
+	- w/o faith you dismiss God & ignore the Holy Spirit's directions
