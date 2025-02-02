@@ -2162,5 +2162,6 @@ defend what is rightfully yours (Ephesians 6:14)
 - put it on once & leave it for the rest of ur life; not on = vulnerable to enemy
 - make sure u have all pieces on: "Some of us are preoccupied with but one piece of God's armor to the extent that others are neglected. You must have on the whole armor or you may find yourself being an expert in the use of the "sword of the Spirit" and still defeated because you have forgotten the shield of faith"
 
->'Therefore, take up the full armor of God, so that you will be able to resist on the evil day, and having done everything, to stand firm. Stand firm therefore, having belted your waist with truth, and having put on the breastplate of righteousness, and having strapped on your feet the preparation of the gospel of peace; in addition to all, taking up the shield of faith with which you will be able to extinguish all the flaming arrows of the evil one. And take the helmet of salvation and the sword of the Spirit, which is the word of God.' (Ephesians 6:13-17)
-- why? 
+>'Therefore, take up the full armor of God, so that you will be able to resist on the evil day, and having done everything, to stand firm. Stand firm therefore, ==having== ==belted your waist with truth==, and having put on the ==breastplate of righteousness==, and having strapped on your ==feet the preparation of the gospel of peace==; in addition to all, taking up the shield of faith with which you will be able to extinguish all the flaming arrows of the evil one. And take the helmet of salvation and the sword of the Spirit, which is the word of God.' (Ephesians 6:13-17)
+- why? to stand against "deceit, cunning, craftiness" of devil
+- "having" + "taking up" = 
