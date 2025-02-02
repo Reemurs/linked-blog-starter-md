@@ -2261,9 +2261,10 @@ Ephesians 6:18
 How would I use shield of faith to defend myself from these?
 - Selfishness: I do not have to take what I need b/c God will give it to me; remember verse about man not wanting to be rich or poor, he just wants what God allotted for him
 - Covetousness: Same as above
+	- remember you could covet using social media
 - Pride: I am nothing w/o God; God has every right to tell me what to do b/c he saved me & he is ht e only one who knows what is going on & what to do about it (+ he made the situation)
-- Doubt: 
-- Discouragement:
+- Doubt: If God was not who he said he was (as powerful, as good), the vast ocean would not be so diverse & beautiful & interesting, I would not have been born into a loving and well-off family (others are not, but this is part of God's paln/development for them, papi would not have appreciated his riches + God as much if he had been born into them), I would have much worse negative thought patterns about who I am (hate self + worthless), I would have made no progress in this, Israel would still be slaves to egypt
+- Discouragement: God put me on this earth for a pru
 - Depression:
 - Lust:
 - Greed:
