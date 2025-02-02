@@ -2171,7 +2171,10 @@ defend what is rightfully yours (Ephesians 6:14)
 Satan's 1st attack on man = truth
 >'The woman said to the serpent, “From the fruit of the trees of the garden we may eat; but from the fruit of the tree which is in the middle of the garden, God has said, ‘You shall not eat from it or touch it, or you will die.’” The serpent said to the woman, “You certainly will not die!' (Genesis 3:2-4)
 #### Truth Definition
-Jesus said, "I am the truth." John 14:6
+>'Jesus *said to him, “I am the way, and the truth, and the life; no one comes to the Father except through Me. '
+
+John 14:6
+https://www.bible.com/bible/2692/JHN.14.6
 -The Holy Spirit is the "Spirit of truth."John 14:17
 -God is truth. Romans 3:4
 -God's Word is truth. Psalms 119:151
