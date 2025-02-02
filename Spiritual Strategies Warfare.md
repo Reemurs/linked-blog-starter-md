@@ -2154,6 +2154,6 @@ defend what is rightfully yours (Ephesians 6:14)
 ### Lay Aside Worldy Affairs
 ...that prevent you from being a good soldier
 
->'Thou therefore endure hardness, as a good soldier of Jesus Christ. No man that warreth entangleth himself with the affairs of this life; that he may please him who hath chosen him to be a soldier.' (2 Timothy 2:3-4)
+>'Suffer hardship with me, as a good soldier of Christ Jesus. No soldier in active service entangles himself in the affairs of everyday life, so that he may please the one who enlisted him.' (2 Timothy 2:3-4)
 
 >'Therefore, since we also have such a great cloud of witnesses surrounding us, let’s rid ourselves of every obstacle and the sin which so easily entangles us, and let’s run with endurance the race that is set before us,' (Hebrews 12:1)
