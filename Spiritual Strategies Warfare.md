@@ -2272,4 +2272,10 @@ How would I use shield of faith to defend myself from these?
 # Offensive Weapons
 >'The Lord has opened His armory And has brought out the weapons of His indignation, For it is a work of the Lord God of armies In the land of the Chaldeans.' (Jeremiah 50:25)
 
+We are commanded to fight:
 >'This command I entrust to you, Timothy, my son, in accordance with the prophecies previously made concerning you, that by them you fight the good fight,' (1 Timothy 1:18)
+
+>'Fight the good fight of faith; take hold of the eternal life to which you were called, and for which you made the good confession in the presence of many witnesses.' (1 Timothy 6:12)
+
+Fight w/ Purpose/Diligence/Intelligence
+>'Therefore I run in such a way as not to run aimlessly; I box in such a way, as to avoid hitting air;' (1 Corinthians 9:26)
