@@ -2482,7 +2482,10 @@ Romans 6:6-7 – The flesh "will not die a natural death. You must crucify it by
 	- Righteous – I belong to Christ
 		- He cares for me & takes care of me
 		- Only way to get the good consequences that you want (reap what you sow)
-			- You have the freedom to get what you want w/ the flesh, but at a price (Adam & Eve got to eat the fruit of knowledge)
+			- You have the freedom to get what you want w/ the flesh, but at a price (Adam & Eve got to eat the fruit of knowledge, but knowledge leads to suffering {Eccelsiastes 1} by removing them from the perfect earthly paradise {God's will is perfect & it will make you glad, laborer who weeps when sowing will rejoice in the harvest} forever)
+				- God does not restrict you (he is not oppressively controlling), he is good
+					- He disciplines you so you avoid destruction due to your own decisions & foolishness, he is good
+					- Answer to doubt about God being controlling: there is only one perfection & all the rest deviates from it (evil & harm)
 	- My desires/flesh – I belong to the devil (child of)
 	- I cannot belong to myself becuase when I follow myself I am doing the will of the devil
 
