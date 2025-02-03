@@ -2408,7 +2408,8 @@ Satan accesses the soul & spirit through the flesh
 I Peter 2:11 – Abstain from fleshly lusts which war against the soul
 Ephesians 4:27 – give no place to him
 - Give Satan a claim to ur life when you indulge in fleshly sins
-II Timothy 2:26
+II Timothy 2:26 – Continued willful indulgence in fleshly sins can
+result in bondage to Satan
 
 >'but I see a different law in the parts of my body waging war against the law of my mind, and making me a prisoner of the law of sin, the law which is in my body’s parts.' (Romans 7:23)
 - Satan uses flesh to affect mind
@@ -2417,3 +2418,9 @@ II Timothy 2:26
 
 >'For the one who sows to his own flesh will reap destruction from the flesh, but the one who sows to the Spirit will reap eternal life from the Spirit.' (Galatians 6:8)
 - Satan uses it to cause you to reap corruption (rottenness, perversion) in your life
+### Demons
+ he tries to conform you to the world rather than to God w/ the world's charms
+## Counterstrat
+### Flesh
+#### Present body as living sacrifice
+"You must present yourself to God as an act of your own will. In the Old Testament when a sacrifice was given to God, the person who offered it had no further control over it. It was given totally to the Lord. Instead of conforming to the world and the flesh, you must be transformed by the renewing of your mind"
