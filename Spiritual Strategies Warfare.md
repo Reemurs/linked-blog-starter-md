@@ -2407,7 +2407,15 @@ Revelation 20:3, 7-8 – Satan = deceiver of nations
 II Peter 5:8 – devil = prowling lion (fear tactic, openly attacks)
 II Corithnians 11:14-15 – disguised as angel of light (alluring, subtle, sectret attack)
 II Corinthians 4:4 – Satan tries to keep word from being effective in ppl's hearts
+Genesis 3:1-5 – He plants doubt in the minds of believers, part of the first temptation of man in the Garden of Eden
 
 >'Then the Lord said to Satan, “Behold, all that he has is in your power; only do not reach out and put your hand on him.” So Satan departed from the presence of the Lord.' (Job 1:12)
 - Satan can tempt you, but no more than you are able to bear
 
+>'Then I heard a loud voice in heaven, saying, “Now the salvation, and the power, and the kingdom of our God and the authority of His Christ have come, for the accuser of our brothers and sisters has been thrown down, the one who accuses them before our God day and night.' (Revelation 12:10)
+- Satan accuses & slanders believers -> incites persecution of them by the world
+
+>'For we wanted to come to you—I, Paul, more than once—and Satan hindered us.'
+
+1 Thessalonians 2:18
+https://www.bible.com/bible/2692/1TH.2.18
