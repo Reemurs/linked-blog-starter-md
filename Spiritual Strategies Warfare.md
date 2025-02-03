@@ -2340,3 +2340,11 @@ Acts book – miracles don in his name
 - let = permit in spiritual life if you are to be victorious
 	- Ref of what to let in life [return_pdf]
 # Natural Ex.
+I timothy 1:18
+## War
+### Def
+act of force to compel opponent to fulfill our will
+- Satan constantly uses forces of evil to compel you to fulfill his will
+### Lifestyle
+prep & train; use weapons; guard ur mind; advance territory & claim souls Satan wants
+### 
