@@ -2404,4 +2404,8 @@ objectives of spiritual warfare [return_pdf]
 >'We know that we are of God, and that the whole world lies in the power of the evil one.' (1 John 5:19)
 
 Revelation 20:3, 7-8 – Satan = deceiver of nations
+II Peter 5:8 – devil = prowling lion (fear tactic, openly attacks)
+II Corithnians 11:14-15 – disguised as angel of light (alluring, subtle, sectret attack)
+II Corinthians 4:4 – Satan tries to keep word from being effective in ppl's hearts
+
 
