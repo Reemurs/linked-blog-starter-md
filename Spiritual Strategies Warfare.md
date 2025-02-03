@@ -2511,7 +2511,9 @@ How to kill the flesh:
 - you will be blameless -> no low self esteem -> no death & mourning
 - What the fleeting pleasures can't do for you, God can: provide true fulfillment (find life & peace) & satisfaction w/ no stings attached (regret & remorse afterward)
 - Of you walk in the flesh, your mind will be set on the flesh -> will only care to pursue those fleshly desires & nothing bigger -> always worried about sin, never satisfied w/ what is insufficient (you are on a malnourished diet on a diet of sin instead of the living water)
-- You do not want to be hos
+- You do not want to be hostle to God (you see what the does to enemies)
+	- you cannot please God
+- You cannot do good if you chose to do so w/ a flehly mind -> you will always fail b/c you are not relyin on God's stregth & clothing urself in Jesus's righteousness
 
 quicken = to endue with life
 
