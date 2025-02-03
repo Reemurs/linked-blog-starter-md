@@ -2346,7 +2346,7 @@ I timothy 1:18
 act of force to compel opponent to fulfill our will
 - Satan constantly uses forces of evil to compel you to fulfill his will
 ### Lifestyle
-prep & train (learn enemy strat, soldiers leave civilian life behind & no longer entangled in civilian affairs {II Timothy 2:3-4}); use weapons; guard ur mind; advance territory & claim souls Satan wants
+prep & train (learn enemy strat, soldiers leave civilian life behind & no longer entangled in civilian affairs {II Timothy 2:3-4}); use weapons; guard ur mind; advance territory & claim souls Satan wants; obedience
 ### Objectives
 Main = victory; smaller goals = claim terriroey & win battles
 God is your commander & sets sp. spiritual goals & territory for you to claim
@@ -2383,3 +2383,9 @@ Frontal: direct; is a temptation; how to win = resist him & he will flee
 Siege/blockade: enemy takes control of ur territory; how to win = bind enemy & loose life areas under his control from his pwr
 
 Invasion & occupation: possession; bind enemy & cast him out
+### Cooperation
+Soldiers need to do it to defeat enemy
+don't leave weak behind, but protect them until they have recovered
+
+"The Christian army tends to shoot its own wounded. When a believer falls in battle we gossip about him or give up on him. Instead, we should rescue these spiritually wounded and surround them with our strength. The forces of God should move ahead as one united front, not as a straggling group trailed by wounded warriors who fall and die by the wayside"
+### Courage
