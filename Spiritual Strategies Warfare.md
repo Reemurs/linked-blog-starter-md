@@ -2356,4 +2356,9 @@ Satan puts falsehood in ur mind if u let him
 Satan tries to get you to compromise w/ sin
 ### Intelligence
 Learn about enemy through intelligence manual (bible), but he also learns about your weaknesses & the right offenses (his pwr is lesser than urs)
+### Weapons
+Use spiritual weapons; not natural weapons & ur own strength (human strength is much weaker than Satan's while God's is MUCH stronger so rely on him, remember ur name meaning)
+### Surprise attacks
+Be on guard; do not expect Satan to give you a warning
+sabotage; ambush; terrorism -> confusion & defeat
 ### 
