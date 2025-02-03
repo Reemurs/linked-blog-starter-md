@@ -2427,6 +2427,14 @@ result in bondage to Satan
 
 "You must present yourself to God as an act of your own will. In the Old Testament when a sacrifice was given to God, the person who offered it had no further control over it. It was given totally to the Lord. Instead of conforming to the world and the flesh, you must be transformed by the renewing of your mind"
 #### Arm Yourself w/ the MInd of Christ
-I Peter 4:1 – how to rener ur mind
+How to renew ur mind:
+>'Therefore, since Christ has suffered in the flesh, arm yourselves also with the same purpose, because the one who has suffered in the flesh has ceased from sin, so as to live the rest of the time in the flesh no longer for human lusts, but for the will of God.' (1 Peter 4:1-2)
+#### Develop Proper Attitude Toward Your Flesh
+>'For all that is in the world, the lust of the flesh and the lust of the eyes and the boastful pride of life, is not from the Father, but is from the world.' (1 John 2:16)
 
->'so as to live the rest of the time in the flesh no longer for human lusts, but for the will of God.' (1 Peter 4:2)
+>'save others, snatching them out of the fire; and on some have mercy with fear, ==hating even the garment polluted by the flesh==.' (Jude 1:23)
+
+>'for we are the true circumcision, who worship in the Spirit of God and take pride in Christ Jesus, and put no confidence in the flesh, '
+
+Philippians 3:3
+https://www.bible.com/bible/2692/PHP.3.3
