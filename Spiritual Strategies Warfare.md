@@ -2166,6 +2166,8 @@ Satan's 1st attack on man = truth
 Not ur righteousness, but the covering of the righteousness of Christ:
 >'and may be found in Him, not having a righteousness of my own derived from the Law, but that which is through faith in Christ, the righteousness which comes from God on the basis of faith,' (Philippians 3:9)
 
+>'I do not nullify the grace of God, for if righteousness comes through the Law, then Christ died needlessly.”' (Galatians 2:21)
+
 Cannot face the enemy w/o the protection of Christ's righteousness
 >'in the word of truth, and in the power of God; by the weapons of righteousness for the right hand and the left,' (2 Corinthians 6:7)
 
@@ -2448,6 +2450,11 @@ Present:
 >'But God, being rich in mercy, because of His great love with which He loved us, even when we were dead in our wrongdoings, made us alive together with Christ (by grace you have been saved), and raised us up with Him, and seated us with Him in the heavenly places in Christ Jesus, so that in the ages to come He might show the boundless riches of His grace in kindness toward us in Christ Jesus.' (Ephesians 2:4-7)
 
 >'remember that you were at that time separate from Christ, excluded from the people of Israel, and strangers to the covenants of the promise, having no hope and without God in the world. But now in Christ Jesus you who previously were far away have been brought near by the blood of Christ. For He Himself is our peace, who made both groups into one and broke down the barrier of the dividing wall, by abolishing in His flesh the hostility, which is the Law composed of commandments expressed in ordinances, so that in Himself He might make the two one new person, in this way establishing peace; and that He might reconcile them both in one body to God through the cross, by it having put to death the hostility. And He came and preached peace to you who were far away, and peace to those who were near; for through Him we both have our access in one Spirit to the Father. So then you are no longer strangers and foreigners, but you are fellow citizens with the saints, and are of God’s household, having been built on the foundation of the apostles and prophets, Christ Jesus Himself being the cornerstone, in whom the whole building, being fitted together, is growing into a holy temple in the Lord, in whom you also are being built together into a dwelling of God in the Spirit.' (Ephesians 2:12-22)
+
+>'It was for freedom that Christ set us free; therefore keep standing firm and do not be subject again to a yoke of slavery.'
+
+Galatians 5:1
+https://www.bible.com/bible/2692/GAL.5.1
 #### Train Your Flesh to Obey
 Through trials:
 >'Beloved, do not be surprised at the fiery ordeal among you, which comes upon you for your testing, as though something strange were happening to you; but to the degree that you share the sufferings of Christ, keep on rejoicing, so that at the revelation of His glory you may also rejoice and be overjoyed. If you are insulted for the name of Christ, you are blessed, because the Spirit of glory, and of God, rests upon you. Make sure that none of you suffers as a murderer, or thief, or evildoer, or a troublesome meddler; but if anyone suffers as a Christian, he is not to be ashamed, but is to glorify God in this name. For it is time for judgment to begin with the household of God; and if it begins with us first, what will be the outcome for those who do not obey the gospel of God? A nd if it is with difficulty that the righteous is saved , what will become of the godless man and the sinner ? Therefore, those also who suffer according to the will of God are to entrust their souls to a faithful Creator in doing what is right.' (1 Peter 4:12-19)
@@ -2467,3 +2474,4 @@ cleanse yourself of filthiness of the flesh. YOU must not make provisions for th
 #### Put the Flesh to Death
 Romans 6:6-7 – The flesh "will not die a natural death. You must crucify it by refusing to be controlled by it"
 
+>'I have been crucified with Christ; and it is no longer I who live, but Christ lives in me; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself up for me.' (Galatians 2:20)
