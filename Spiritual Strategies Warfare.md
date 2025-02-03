@@ -2311,4 +2311,7 @@ Cast = throw/hurl
 >'Heal the sick, raise the dead, cleanse those with leprosy, cast out demons. Freely you received, freely give.' (Matthew 10:8)
 ### Bind & Loose
 Matthew 16:19 
-Whenever u bind
+Used together: whenever u bind smth, you should loose smth
+Ex. Bind spirit of lying & loose spirit of truth (remember v. about demons returning to man that was exorcised & finding house was swept clean, u wanna avoid that)
+### Blood of Christ
+>'And they overcame him because of the blood of the Lamb and because of the word of their testimony, and they did not love their life even when faced with death.' (Revelation 12:11)
