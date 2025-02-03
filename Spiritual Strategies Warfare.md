@@ -2408,4 +2408,6 @@ II Peter 5:8 – devil = prowling lion (fear tactic, openly attacks)
 II Corithnians 11:14-15 – disguised as angel of light (alluring, subtle, sectret attack)
 II Corinthians 4:4 – Satan tries to keep word from being effective in ppl's hearts
 
+>'Then the Lord said to Satan, “Behold, all that he has is in your power; only do not reach out and put your hand on him.” So Satan departed from the presence of the Lord.' (Job 1:12)
+- Satan can tempt you, but no more than you are able to bear
 
