@@ -2487,6 +2487,9 @@ Romans 6:6-7 – The flesh "will not die a natural death. You must crucify it by
 					- He disciplines you so you avoid destruction due to your own decisions & foolishness, he is good
 					- Answer to doubt about God being controlling: there is only one perfection & all the rest deviates from it (evil & harm) & God will never ask you to do something you can't do, he will be w/ you on the path to perfection (what is good) every step of the way (consider his closeness w/ Daniel/Joseph when they were captive, David/Abraham when they went off into uncertain territory {war against the odds: boy vs. giant, leave everything you know & go to foreign land on daunting journey w/ impossibly many ppl to keep order w/})
 						- Do you really want to leave what is best to find what is (deceptively) good?
+						- You can do what you want, its just that God wants you to protect you from what is evil & since that is in everything that isn't good (perfect), you only have one narrow path to follow
+					- The wicked can do evil, but they will have to face God's wrath because he is incompatible with evil & has the responsibility of serving justice
+						- they can do what they want, but they have to face the consequences of their actions
 	- My desires/flesh – I belong to the devil (child of)
 	- I cannot belong to myself because when I follow myself I am doing the will of the devil
 
@@ -2497,6 +2500,7 @@ How to kill the flesh:
 >'But I say, walk by the Spirit, and you will not carry out the desire of the flesh. For the desire of the flesh is against the Spirit, and the Spirit against the flesh; for these are in opposition to one another, in order to keep you from doing whatever you want. But if you are led by the Spirit, you are not under the Law.' (Galatians 5:16-18)
 - connect to Galatians 5:4 – it is good we are not under the law b/c we are not able to justify ourselves by the law b/c our strength alone is to weak
 	- walk by the spirit = gain the strength of the spirit
+- "The flesh is not more powerful than the spirit"
 
 >'If we live by the Spirit, let’s follow the Spirit as well.' (Galatians 5:25)
 - If the Spirit lies in you & you live in Christ, then you might was well take advantage of it by listening to His advice
