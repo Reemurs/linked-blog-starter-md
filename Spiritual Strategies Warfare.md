@@ -2463,3 +2463,7 @@ Romans 13:14
 "YOU must take action. YOU must abstain from fleshly lusts. YOU must
 cleanse yourself of filthiness of the flesh. YOU must not make provisions for the flesh."
 #### Get rid of Your old Ways
+>'that, in reference to your former way of life, you are to rid yourselves of the old self, which is being corrupted in accordance with the lusts of deceit, and that you are to be renewed in the spirit of your minds, and to put on the new self, which in the likeness of God has been created in righteousness and holiness of the truth.' (Ephesians 4:22-24)
+#### Put the Flesh to Death
+Romans 6:6-7 – The flesh "will not die a natural death. You must crucify it by refusing to be controlled by it"
+
