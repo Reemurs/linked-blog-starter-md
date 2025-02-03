@@ -2397,3 +2397,11 @@ objectives of spiritual warfare [return_pdf]
 # Invasion: Entering Combat Zone
 >'knowing this, that our old self was crucified with Him, in order that our body of sin might be done away with, so that we would no longer be slaves to sin; for the one who has died is freed from sin.' (Romans 6:6-7)
 
+>'so that no advantage would be taken of us by Satan, for we are not ignorant of his schemes.' (2 Corinthians 2:11)
+- know bible to defeat him
+## Satan Strat
+### World & Flesh
+>'We know that we are of God, and that the whole world lies in the power of the evil one.' (1 John 5:19)
+
+Revelation 20:3, 7-8 – Satan = deceiver of nations
+
