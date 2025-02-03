@@ -2321,3 +2321,17 @@ Ex. Bind spirit of lying & loose spirit of truth (remember v. about demons retur
 Revelation 12:11 – enemy defeated through word of ur testimony
 
 Testimony = evidence/record (of pwr of God in ur life)
+
+"Jesus often commanded people who had been delivered to go and tell
+others what God had done for them"
+
+"To be effective, your testimony must be based upon the testimony of the Word of God, just as a lawyer in a court bases his arguments on the law of the land"
+### Jesus's Name
+Mark 16:17 – in my name they will cast out demons, heal the sick, overcome all the pwr of the enemy
+Acts book – miracles don in his name
+
+"The name of Jesus is not some magical phrase with which we conclude our prayers. It is a symbol of the authority and power He has given us."
+
+"You had better be authorized to use His power an authority before you start using His names to war against Satanic powers. Review the story in Acts 19:13-17 and note what happened to the sons of Sceva"
+## Further Study
+Casting: 
