@@ -2299,3 +2299,9 @@ Two words for word of God
 
 >'Have this attitude in yourselves which was also in Christ Jesus,' (Philippians 2:5)
 
+(I John 3:8) – Jesus purpose = destroy works of the devil
+- take aggressive attitude v. devil
+
+>'And do not be conformed to this world, but be transformed by the renewing of your mind, so that you may prove what the will of God is, that which is good and acceptable and perfect.' (Romans 12:2)
+### Pull & Cast Down Strongholds of Enemy
+>'for the weapons of our warfare are not of the flesh, but divinely powerful for the destruction of fortresses. We are destroying arguments and all arrogance raised against the knowledge of God, and we are taking every thought captive to the obedience of Christ,' (2 Corinthians 10:4-5)
