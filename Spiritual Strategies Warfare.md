@@ -2315,3 +2315,9 @@ Used together: whenever u bind smth, you should loose smth
 Ex. Bind spirit of lying & loose spirit of truth (remember v. about demons returning to man that was exorcised & finding house was swept clean, u wanna avoid that)
 ### Blood of Christ
 >'And they overcame him because of the blood of the Lamb and because of the word of their testimony, and they did not love their life even when faced with death.' (Revelation 12:11)
+- looses us from dominion of sin & pwr of enemy
+- blood secures our access to God & releases us from bondage of Satan
+### Your Testimony
+Revelation 12:11 – enemy defeated through word of ur testimony
+
+Testimony = evidence/record (of pwr of God in ur life)
