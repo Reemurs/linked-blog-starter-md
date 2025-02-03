@@ -2380,7 +2380,7 @@ objectives of spiritual warfare [return_pdf]
 >'so that no advantage would be taken of us by Satan, for we are not ignorant of his schemes.' (2 Corinthians 2:11)
 - know bible to defeat him
 ## Satan Strat
-### World & Flesh
+### World
 >'We know that we are of God, and that the whole world lies in the power of the evil one.' (1 John 5:19)
 
 Revelation 20:3, 7-8 – Satan = deceiver of nations
@@ -2398,3 +2398,5 @@ I John 2:15-16 – entices believers to sin by surrounding them w/ the world & e
 
 >'For we wanted to come to you—I, Paul, more than once—and Satan hindered us.' (1 Thessalonians 2:18)
 - he prevents believers from effective christian service
+### Flesh
+>"'When the woman **saw** that the tree was good for food, and that it was a delight to the eyes, and that the tree was desirable to make one wise, she took some of its fruit and ate; and she also gave some to her husband with her, and he ate." Genesis 3:6)
