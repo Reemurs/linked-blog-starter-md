@@ -2477,6 +2477,16 @@ Romans 6:6-7 – The flesh "will not die a natural death. You must crucify it by
 
 >'I have been crucified with Christ; and it is no longer I who live, but Christ lives in me; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself up for me.' (Galatians 2:20)
 
+>'Now those who belong to Christ Jesus crucified the flesh with its passions and desires.' Galatians 5:24)
+- I have to belong to someone/smth
+	- Righteous – I belong to Christ
+		- He cares for me & takes care of me
+		- Only way to get the good consequences that you want (reap what you sow)
+			- You have the freedom to get what you want w/ the flesh, but at a price (Adam & Eve got to eat the fruit of knowledge)
+	- My desires/flesh – I belong to the devil (child of)
+	- I cannot belong to myself becuase when I follow myself I am doing the will of the devil
+
 How:
 >'But I say, walk by the Spirit, and you will not carry out the desire of the flesh. For the desire of the flesh is against the Spirit, and the Spirit against the flesh; for these are in opposition to one another, in order to keep you from doing whatever you want. But if you are led by the Spirit, you are not under the Law.' (Galatians 5:16-18)
-- connect to 
+- connect to Galatians 5:4 – it is good we are not under the law b/c we are not able to justify ourselves by the law b/c our strength alone is to weak
+	- walk by the spirit = gain the strength of the spirit
