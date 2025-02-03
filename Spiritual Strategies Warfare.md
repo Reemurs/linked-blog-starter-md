@@ -2451,3 +2451,15 @@ Present:
 #### Train Your Flesh to Obey
 Through trials:
 >'Beloved, do not be surprised at the fiery ordeal among you, which comes upon you for your testing, as though something strange were happening to you; but to the degree that you share the sufferings of Christ, keep on rejoicing, so that at the revelation of His glory you may also rejoice and be overjoyed. If you are insulted for the name of Christ, you are blessed, because the Spirit of glory, and of God, rests upon you. Make sure that none of you suffers as a murderer, or thief, or evildoer, or a troublesome meddler; but if anyone suffers as a Christian, he is not to be ashamed, but is to glorify God in this name. For it is time for judgment to begin with the household of God; and if it begins with us first, what will be the outcome for those who do not obey the gospel of God? A nd if it is with difficulty that the righteous is saved , what will become of the godless man and the sinner ? Therefore, those also who suffer according to the will of God are to entrust their souls to a faithful Creator in doing what is right.' (1 Peter 4:12-19)
+
+You will learn ot discern:
+>'For everyone who partakes only of milk is unacquainted with the word of righteousness, for he is an infant. But solid food is for the mature, who because of practice have their senses trained to distinguish between good and evil.' (Hebrews 5:13-14) #discerment
+
+You do not conquer your flesh by giving in to it:
+I Peter 2:11
+II Corinthians 7:1
+Romans 13:14
+
+"YOU must take action. YOU must abstain from fleshly lusts. YOU must
+cleanse yourself of filthiness of the flesh. YOU must not make provisions for the flesh."
+#### Get rid of Your old Ways
