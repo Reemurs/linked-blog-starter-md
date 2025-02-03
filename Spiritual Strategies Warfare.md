@@ -2168,6 +2168,8 @@ Not ur righteousness, but the covering of the righteousness of Christ:
 
 >'I do not nullify the grace of God, for if righteousness comes through the Law, then Christ died needlessly.”' (Galatians 2:21)
 
+>'You have been severed from Christ, you who are seeking to be justified by the Law; you have fallen from grace. For we, through the Spirit, by faith, are waiting for the hope of righteousness.' (Galatians 5:4-5)
+
 Cannot face the enemy w/o the protection of Christ's righteousness
 >'in the word of truth, and in the power of God; by the weapons of righteousness for the right hand and the left,' (2 Corinthians 6:7)
 
@@ -2451,15 +2453,14 @@ Present:
 
 >'remember that you were at that time separate from Christ, excluded from the people of Israel, and strangers to the covenants of the promise, having no hope and without God in the world. But now in Christ Jesus you who previously were far away have been brought near by the blood of Christ. For He Himself is our peace, who made both groups into one and broke down the barrier of the dividing wall, by abolishing in His flesh the hostility, which is the Law composed of commandments expressed in ordinances, so that in Himself He might make the two one new person, in this way establishing peace; and that He might reconcile them both in one body to God through the cross, by it having put to death the hostility. And He came and preached peace to you who were far away, and peace to those who were near; for through Him we both have our access in one Spirit to the Father. So then you are no longer strangers and foreigners, but you are fellow citizens with the saints, and are of God’s household, having been built on the foundation of the apostles and prophets, Christ Jesus Himself being the cornerstone, in whom the whole building, being fitted together, is growing into a holy temple in the Lord, in whom you also are being built together into a dwelling of God in the Spirit.' (Ephesians 2:12-22)
 
->'It was for freedom that Christ set us free; therefore keep standing firm and do not be subject again to a yoke of slavery.'
+>'It was for freedom that Christ set us free; therefore keep standing firm and do not be subject again to a yoke of slavery.' (Galatians 5:1)
 
-Galatians 5:1
-https://www.bible.com/bible/2692/GAL.5.1
+>'For you were called to freedom, brothers and sisters; only do not turn your freedom into an opportunity for the flesh, but serve one another through love.' (Galatians 5:13)
 #### Train Your Flesh to Obey
 Through trials:
 >'Beloved, do not be surprised at the fiery ordeal among you, which comes upon you for your testing, as though something strange were happening to you; but to the degree that you share the sufferings of Christ, keep on rejoicing, so that at the revelation of His glory you may also rejoice and be overjoyed. If you are insulted for the name of Christ, you are blessed, because the Spirit of glory, and of God, rests upon you. Make sure that none of you suffers as a murderer, or thief, or evildoer, or a troublesome meddler; but if anyone suffers as a Christian, he is not to be ashamed, but is to glorify God in this name. For it is time for judgment to begin with the household of God; and if it begins with us first, what will be the outcome for those who do not obey the gospel of God? A nd if it is with difficulty that the righteous is saved , what will become of the godless man and the sinner ? Therefore, those also who suffer according to the will of God are to entrust their souls to a faithful Creator in doing what is right.' (1 Peter 4:12-19)
 
-You will learn ot discern:
+You will learn to discern:
 >'For everyone who partakes only of milk is unacquainted with the word of righteousness, for he is an infant. But solid food is for the mature, who because of practice have their senses trained to distinguish between good and evil.' (Hebrews 5:13-14) #discerment
 
 You do not conquer your flesh by giving in to it:
@@ -2475,3 +2476,7 @@ cleanse yourself of filthiness of the flesh. YOU must not make provisions for th
 Romans 6:6-7 – The flesh "will not die a natural death. You must crucify it by refusing to be controlled by it"
 
 >'I have been crucified with Christ; and it is no longer I who live, but Christ lives in me; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself up for me.' (Galatians 2:20)
+
+How:
+>'But I say, walk by the Spirit, and you will not carry out the desire of the flesh. For the desire of the flesh is against the Spirit, and the Spirit against the flesh; for these are in opposition to one another, in order to keep you from doing whatever you want. But if you are led by the Spirit, you are not under the Law.' (Galatians 5:16-18)
+- connect to 
