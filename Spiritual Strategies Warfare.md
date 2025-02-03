@@ -2394,4 +2394,6 @@ don't leave weak behind, but protect them until they have recovered
 "Wars are lost in the mind before they are lost on the ground.... There can never be defeat if you refuse to accept it"
 ## Further Study
 objectives of spiritual warfare [return_pdf]
-# t
+# Invasion: Entering Combat Zone
+>'knowing this, that our old self was crucified with Him, in order that our body of sin might be done away with, so that we would no longer be slaves to sin; for the one who has died is freed from sin.' (Romans 6:6-7)
+
