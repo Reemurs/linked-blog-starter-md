@@ -2437,9 +2437,12 @@ How to renew ur mind:
 Galatians 6:8 – must understand: life in the flesh brings corruption, while life in the spirit brings life everlasting
 #### Realize You Don't Have to be in Bondage to the Flesh
 Past:
->'Among them we too all previously lived in the lusts of our flesh, indulging the desires of the flesh and of the mind, and were by nature children of wrath, just as the rest.' (Ephesians 2:3)
+>'And you were dead in your offenses and sins, in which you previously walked according to the course of this world, according to the prince of the power of the air, of the spirit that is now working in the sons of disobedience. Among them we too all previously lived in the lusts of our flesh, indulging the desires of the flesh and of the mind, and were by nature children of wrath, just as the rest.' (Ephesians 2:1-3)
 
->'For while we were in the flesh, the sinful passions, which were brought to light by the Law, were at work in the parts of our body to bear fruit for death. But now we have been released from the Law, having died to that by which we were bound, so that we serve in newness of the Spirit and not in oldness of the letter. '
+>'For while we were in the flesh, the sinful passions, which were brought to light by the Law, were at work in the parts of our body to bear fruit for death. But now we have been released from the Law, having died to that by which we were bound, so that we serve in newness of the Spirit and not in oldness of the letter.' Romans 7:5-6)
+- letter = old law (only serves to condemn)
 
-Romans 7:5-6
-https://www.bible.com/bible/2692/ROM.7.5-6
+Present: 
+>'For the law of the Spirit of life in Christ Jesus has set you free from the law of sin and of death.' (Romans 8:2)
+
+>'But God, being rich in mercy, because of His great love with which He loved us, even when we were dead in our wrongdoings, made us alive together with Christ (by grace you have been saved), and raised us up with Him, and seated us with Him in the heavenly places in Christ Jesus, so that in the ages to come He might show the boundless riches of His grace in kindness toward us in Christ Jesus.' (Ephesians 2:4-7)
