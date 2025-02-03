@@ -2346,5 +2346,14 @@ I timothy 1:18
 act of force to compel opponent to fulfill our will
 - Satan constantly uses forces of evil to compel you to fulfill his will
 ### Lifestyle
-prep & train; use weapons; guard ur mind; advance territory & claim souls Satan wants
+prep & train (learn enemy strat, soldiers leave civilian life behind & no longer entangled in civilian affairs {II Timothy 2:3-4}); use weapons; guard ur mind; advance territory & claim souls Satan wants
+### Objectives
+Main = victory; smaller goals = claim terriroey & win battles
+God is your commander & sets sp. spiritual goals & territory for you to claim
+### Propaganda
+Satan puts falsehood in ur mind if u let him
+### Diplomatic Proposals
+Satan tries to get you to compromise w/ sin
+### Intelligence
+Learn about enemy through intelligence manual (bible), but he also learns about your weaknesses & the right offenses (his pwr is lesser than urs)
 ### 
