@@ -2366,5 +2366,13 @@ One territory claimed can lead to other territories being claimed
 Don't give him an inch: once Satan has your mind/etc. he can get your heart and the rest of you body
 Strategic locations: most ministers located where there are accessible churches, radio, & TV programs to every home while other nations are neglected, very few ministers trained to reach them while Satan is strategically using them to snare the souls of the ppl there
 ### Comm.s
-Very important; gain instruction & encouragement; enemy tries to sever these lines knowing they will res
-- Satan:
+Very important; gain instruction & encouragement; enemy tries to sever these lines knowing they will result in failure on the battlefield
+- Satan destroys comm.s by: Prevent you from pray & read God's word
+- so busy at war that u neglect comms w/ the commander -> easily defeated
+### Targets
+Moving (dangerous b/c they are offensive) & stationary
+Satan targets the moving targets, ppl who aggressively enter spiritual battlefield
+### Counterattacks
+"Satan counterattacks every offensive move made by believers: When you decide to pray more, read the Word of God, or enter a ministry"
+
+Frontal: direct; temptation
