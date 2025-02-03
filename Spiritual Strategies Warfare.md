@@ -2369,10 +2369,17 @@ Strategic locations: most ministers located where there are accessible churches,
 Very important; gain instruction & encouragement; enemy tries to sever these lines knowing they will result in failure on the battlefield
 - Satan destroys comm.s by: Prevent you from pray & read God's word
 - so busy at war that u neglect comms w/ the commander -> easily defeated
-### Targets
+### Targets & Mobility
 Moving (dangerous b/c they are offensive) & stationary
 Satan targets the moving targets, ppl who aggressively enter spiritual battlefield
+
+"A soldier does not put on armor and take up his weapons just to sit comfortably at home in front of a fire. He not only prepares for battle, he goes to the battlefield. Some Christian soldiers prepare for battle, but never leave the security of their home or church fellowship to go to the battlefield. The war is going on in the streets of our cities. It is going on in villages yet unreached with the Gospel message. No matter how prepared we are spiritually, we will never win the battle unless we are mobile for the Lord Jesus Christ.
+A soldier does not gain skills as a warrior by just studying the books on warfare. He advances in skill through experience on the battlefield."
 ### Counterattacks
 "Satan counterattacks every offensive move made by believers: When you decide to pray more, read the Word of God, or enter a ministry"
 
-Frontal: direct; temptation
+Frontal: direct; is a temptation; how to win = resist him & he will flee
+
+Siege/blockade: enemy takes control of ur territory; how to win = bind enemy & loose life areas under his control from his pwr
+
+Invasion & occupation: possession; bind enemy & cast him out
