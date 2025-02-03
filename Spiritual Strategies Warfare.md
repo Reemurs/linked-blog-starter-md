@@ -2504,3 +2504,10 @@ How to kill the flesh:
 
 >'If we live by the Spirit, let’s follow the Spirit as well.' (Galatians 5:25)
 - If the Spirit lies in you & you live in Christ, then you might was well take advantage of it by listening to His advice
+
+"If you let the Holy Spirit manifest His power in you, He will quicken your mortal body of flesh." 
+- Question: What does life mean? What is so good about it? Why would I prioritize it over temporary impulses/pleasures?
+
+quicken = to endue with life
+
+"You do not have to live in the death of sin. God can quicken your spirit to new life:"
