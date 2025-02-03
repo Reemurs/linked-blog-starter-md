@@ -2389,3 +2389,9 @@ don't leave weak behind, but protect them until they have recovered
 
 "The Christian army tends to shoot its own wounded. When a believer falls in battle we gossip about him or give up on him. Instead, we should rescue these spiritually wounded and surround them with our strength. The forces of God should move ahead as one united front, not as a straggling group trailed by wounded warriors who fall and die by the wayside"
 ### Courage
+"'If you are afraid of being shot at, you are whipped before you start...Fear kills more people than death.' Do not fear failure in spiritual warfare. If you are afraid of being shot at by the enemy, you are defeated before you start."
+
+"Wars are lost in the mind before they are lost on the ground.... There can never be defeat if you refuse to accept it"
+## Further Study
+objectives of spiritual warfare [return_pdf]
+# t
