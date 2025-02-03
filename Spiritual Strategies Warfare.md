@@ -1203,48 +1203,28 @@ Ref of what demons do & how God uses them to defeat themselves
 
   
 # Enemy Territory
+>“Do not love the world nor the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world, the lust of the flesh and the lust of the eyes and the boastful pride of life, is not from the Father, but is from the world.” (1 John 2:15-16)
 
-“Do not love the world nor the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world, the lust of the flesh and the lust of the eyes and the boastful pride of life, is not from the Father, but is from the world.” (1 John 2:15-16)
-
-  
-
-Def of world:
-
+**Def of world:**
 - Gentiles
 - Phys. Order of earth/Uni 
 - Present condition of human affairs in opp. to God (system that runs the earth = extension of man’s flesh)
-
 - group of flesh-centered individuals who make up the human race
 - Flesh = basic evil human nature of man which is in willful rebellion against God
 - provides an atmosphere, environment, and system which promotes fleshly sins. It surrounds man with that which appeals to his fleshly desires
 
-  
-
 **Prince of this world**
-
 John 12:31
-
 “I will not speak much more with you, for the ruler of the world is coming, and he has nothing in regard to Me, but so that the world may know that I love the Father, I do exactly as the Father commanded Me. Get up, let’s go from here.” (John 14:30-31)
 
-  
-
-God of this world:
-
+**God of this world:**
 “in whose case the god of this world has blinded the minds of the unbelieving so that they will not see the light of the gospel of the glory of Christ, who is the image of God.” (2 Corinthians 4:4)
 
-  
-
 Kingdoms of world guided by Satanic philosophy and principles:
-
-“Again, the devil *took Him along to a very high mountain and *showed Him all the kingdoms of the world and their glory; and he said to Him, “All these things I will give You, if You fall down and worship me.”” (Matthew 4:8-9)
-
-  
+“Again, the devil \*took Him along to a very high mountain and \*showed Him all the kingdoms of the world and their glory; and he said to Him, “All these things I will give You, if You fall down and worship me.”” (Matthew 4:8-9)
 
 They will be God’s kingdoms soon:
-
 “Then the seventh angel sounded; and there were loud voices in heaven, saying, “The kingdom of the world has become the kingdom of our Lord and of His Christ; and He will reign forever and ever.”” (Revelation 11:15)
-
-  
 
 **Start of Sin**
 Adam & Eve had dominion over the world: control, guide its systems & inhabitants according to God’s will. Lost dominion when they sinned.
@@ -2408,6 +2388,7 @@ II Peter 5:8 – devil = prowling lion (fear tactic, openly attacks)
 II Corithnians 11:14-15 – disguised as angel of light (alluring, subtle, sectret attack)
 II Corinthians 4:4 – Satan tries to keep word from being effective in ppl's hearts
 Genesis 3:1-5 – He plants doubt in the minds of believers, part of the first temptation of man in the Garden of Eden
+I John 2:15-16 – entices believers to sin by surrounding them w/ the world & encouraging a love of it
 
 >'Then the Lord said to Satan, “Behold, all that he has is in your power; only do not reach out and put your hand on him.” So Satan departed from the presence of the Lord.' (Job 1:12)
 - Satan can tempt you, but no more than you are able to bear
@@ -2415,7 +2396,5 @@ Genesis 3:1-5 – He plants doubt in the minds of believers, part of the first t
 >'Then I heard a loud voice in heaven, saying, “Now the salvation, and the power, and the kingdom of our God and the authority of His Christ have come, for the accuser of our brothers and sisters has been thrown down, the one who accuses them before our God day and night.' (Revelation 12:10)
 - Satan accuses & slanders believers -> incites persecution of them by the world
 
->'For we wanted to come to you—I, Paul, more than once—and Satan hindered us.'
-
-1 Thessalonians 2:18
-https://www.bible.com/bible/2692/1TH.2.18
+>'For we wanted to come to you—I, Paul, more than once—and Satan hindered us.' (1 Thessalonians 2:18)
+- he prevents believers from effective christian service
