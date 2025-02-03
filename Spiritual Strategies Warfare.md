@@ -1426,8 +1426,6 @@ Spirit & Flesh Relationship:
 
 “I find then the principle that evil is present in me, the one who wants to do good. For I joyfully agree with the law of God in the inner person, but I see a different law in the parts of my body waging war against the law of my mind, and making me a prisoner of the law of sin, the law which is in my body’s parts.” (Romans 7:21-23)
 
-  
-
 The lusts of the flesh, if not conquered, lead to sinful **works of the flesh** which result in spiritual death:
 
 “Now the deeds of the flesh are evident, which are: sexual immorality, impurity, indecent behavior, idolatry, witchcraft, hostilities, strife, jealousy, outbursts of anger, selfish ambition, dissensions, factions, envy, drunkenness, carousing, and things like these, of which I forewarn you, just as I have forewarned you, that those who practice such things will not inherit the kingdom of God.” (Galatians 5:19-21)
@@ -2434,7 +2432,14 @@ How to renew ur mind:
 
 >'save others, snatching them out of the fire; and on some have mercy with fear, ==hating even the garment polluted by the flesh==.' (Jude 1:23)
 
->'for we are the true circumcision, who worship in the Spirit of God and take pride in Christ Jesus, and put no confidence in the flesh, '
+>'for we are the true circumcision, who worship in the Spirit of God and ==take pride in Christ Jesus, and put no confidence in the flesh==,' (Philippians 3:3)
 
-Philippians 3:3
-https://www.bible.com/bible/2692/PHP.3.3
+Galatians 6:8 – must understand: life in the flesh brings corruption, while life in the spirit brings life everlasting
+#### Realize You Don't Have to be in Bondage to the Flesh
+Past:
+>'Among them we too all previously lived in the lusts of our flesh, indulging the desires of the flesh and of the mind, and were by nature children of wrath, just as the rest.' (Ephesians 2:3)
+
+>'For while we were in the flesh, the sinful passions, which were brought to light by the Law, were at work in the parts of our body to bear fruit for death. But now we have been released from the Law, having died to that by which we were bound, so that we serve in newness of the Spirit and not in oldness of the letter. '
+
+Romans 7:5-6
+https://www.bible.com/bible/2692/ROM.7.5-6
