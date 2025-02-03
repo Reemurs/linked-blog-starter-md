@@ -187,3 +187,9 @@ Love comes from faith; love that comes from faith will always be pure:
 - We are the peace keepers, even in the face of our enemies
 - Do not harm your enemy if Jesus did not tell you to, bless them
 - Also, what choice did the slave have in this? It is easy to harm others when you try to target the enemy
+
+>'Do nothing from selfishness or empty conceit, but with humility consider one another as more important than yourselves; do not merely look out for your own personal interests, but also for the interests of others.' (Philippians 2:3-4)
+- how can I apply this to my own life?
+	- let other ppl have more food
+	- bring in groceries & do chores when u don't want to so others don't have to do it
+	- Don't do anything for your own personal ambition, but for God
