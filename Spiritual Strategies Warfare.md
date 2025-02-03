@@ -2423,4 +2423,10 @@ result in bondage to Satan
 ## Counterstrat
 ### Flesh
 #### Present body as living sacrifice
+>'Therefore I urge you, brothers and sisters, by the mercies of God, to present your bodies as a living and holy sacrifice, acceptable to God, which is your spiritual service of worship. And do not be conformed to this world, but be transformed by the renewing of your mind, so that you may prove what the will of God is, that which is good and acceptable and perfect.' (Romans 12:1-2)
+
 "You must present yourself to God as an act of your own will. In the Old Testament when a sacrifice was given to God, the person who offered it had no further control over it. It was given totally to the Lord. Instead of conforming to the world and the flesh, you must be transformed by the renewing of your mind"
+#### Arm Yourself w/ the MInd of Christ
+I Peter 4:1 – how to rener ur mind
+
+>'so as to live the rest of the time in the flesh no longer for human lusts, but for the will of God.' (1 Peter 4:2)
