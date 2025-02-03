@@ -2399,4 +2399,11 @@ I John 2:15-16 – entices believers to sin by surrounding them w/ the world & e
 >'For we wanted to come to you—I, Paul, more than once—and Satan hindered us.' (1 Thessalonians 2:18)
 - he prevents believers from effective christian service
 ### Flesh
->"'When the woman **saw** that the tree was good for food, and that it was a delight to the eyes, and that the tree was desirable to make one wise, she took some of its fruit and ate; and she also gave some to her husband with her, and he ate." Genesis 3:6)
+Satan accesses the soul & spirit through the flesh
+>"'When the woman **SAW** that the tree was good for food, and that it was a delight to the eyes, and that the tree was **DESIRABLE** to make one wise, she took some of its fruit and ate; and she also gave some to her husband with her, and he ate." Genesis 3:6)
+- 1st temptation: seeing -> desire -> tempted -> sin
+
+"If Satan cannot 'blind your mind' and keep you from accepting the truth of the Gospel, then he tries to keep you in bondage to the flesh afterwards"
+
+I Peter 2:11 – Abstain from fleshly lusts which war against the soul
+
