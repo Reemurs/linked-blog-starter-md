@@ -2334,4 +2334,9 @@ Acts book – miracles don in his name
 
 "You had better be authorized to use His power an authority before you start using His names to war against Satanic powers. Review the story in Acts 19:13-17 and note what happened to the sons of Sceva"
 ## Further Study
-Casting: 
+- Casting: Matthew 5:29-30; 7:5; 8:16; Mark 16:17; Romans 13:12; II Corinthians 10:5; I Peter 5:7
+- Putting: Romans 13:12, 14; I Corinthians 5:13; 13:11; Galatians 3:27; Ephesians 4:22-24; 6:11; Colossians 3:8-14
+- Taking: I Corinthians 3:10; 8:9; 10:12; Galatians 5:15; Ephesians 6:13,17; I Timothy 4:16; Hebrews 3:12.
+- let = permit in spiritual life if you are to be victorious
+	- Ref of what to let in life [return_pdf]
+# Natural Ex.
