@@ -2406,4 +2406,14 @@ Satan accesses the soul & spirit through the flesh
 "If Satan cannot 'blind your mind' and keep you from accepting the truth of the Gospel, then he tries to keep you in bondage to the flesh afterwards"
 
 I Peter 2:11 – Abstain from fleshly lusts which war against the soul
+Ephesians 4:27 – give no place to him
+- Give Satan a claim to ur life when you indulge in fleshly sins
+II Timothy 2:26
 
+>'but I see a different law in the parts of my body waging war against the law of my mind, and making me a prisoner of the law of sin, the law which is in my body’s parts.' (Romans 7:23)
+- Satan uses flesh to affect mind
+
+>'Therefore, having these promises, beloved, let’s cleanse ourselves from all defilement of flesh and spirit, perfecting holiness in the fear of God.' (2 Corinthians 7:1)
+
+>'For the one who sows to his own flesh will reap destruction from the flesh, but the one who sows to the Spirit will reap eternal life from the Spirit.' (Galatians 6:8)
+- Satan uses it to cause you to reap corruption (rottenness, perversion) in your life
