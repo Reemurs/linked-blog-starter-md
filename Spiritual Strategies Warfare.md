@@ -2456,6 +2456,17 @@ Present:
 >'It was for freedom that Christ set us free; therefore keep standing firm and do not be subject again to a yoke of slavery.' (Galatians 5:1)
 
 >'For you were called to freedom, brothers and sisters; only do not turn your freedom into an opportunity for the flesh, but serve one another through love.' (Galatians 5:13)
+
+My Notes:
+You struggle to obey God & be productive b/c you choose to use SM instead
+You struggle to not pull your hair, not because it is impossible not to; but because you listen to the flesh & not by the spirit, therefore walking by the wrong thing
+The spirit tells you not to continue using SM but you do it anyway -> sin problem
+The Spirit tells you to stop touching your hair & direct your thoughts away from it, but you do it anyway b/c you feel helpless & like it won’t work + obsessive thoughts -> bad habit
+Walk by the Spirit, listen to him when he tells you to quit it & you will succeed since God’s (your) power is much greater than Satan’s power
+Resist the devil & he will flee from you, but what about him attacking you more once you make a move on the battlefield -> resist him when he attacks & he will flee from you & you will be ok, he will come back & attack harder? -> do it again & become stronger as your recognize what God can do for you (grow faith) & understand that there is NO limit to God’s strength & his willingness to assist you to do what is right (he will give u exactly what u need & if he does not answer your prayers that means you are not doing what is right or he is reassuring you that you have all that you need {you are already prepared} & all that you need to do is exactly what God put in your heart/mind to do & he will take care of the rest {do not try to take care of it yourself through your own actions, that causes extra/unnecessary stress & failure & sin b/c you are not God (you don’t know what do & are unable to do it b/c you are limited to your natural senses & cognition)}) 
+GOD = omnipotent, omniscient, omnipresent (always with you, always knows what’s going on, always able)
+You can do it!!! I can do all things through Christ who strengthens me (he already defeated sin once and for all & it’s/the devil’s fate is already predetermined to failure)
+The outcome of the enemy is always predetermined to failure if you choose to obey God
 #### Train Your Flesh to Obey
 Through trials:
 >'Beloved, do not be surprised at the fiery ordeal among you, which comes upon you for your testing, as though something strange were happening to you; but to the degree that you share the sufferings of Christ, keep on rejoicing, so that at the revelation of His glory you may also rejoice and be overjoyed. If you are insulted for the name of Christ, you are blessed, because the Spirit of glory, and of God, rests upon you. Make sure that none of you suffers as a murderer, or thief, or evildoer, or a troublesome meddler; but if anyone suffers as a Christian, he is not to be ashamed, but is to glorify God in this name. For it is time for judgment to begin with the household of God; and if it begins with us first, what will be the outcome for those who do not obey the gospel of God? A nd if it is with difficulty that the righteous is saved , what will become of the godless man and the sinner ? Therefore, those also who suffer according to the will of God are to entrust their souls to a faithful Creator in doing what is right.' (1 Peter 4:12-19)
