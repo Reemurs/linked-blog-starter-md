@@ -2373,5 +2373,11 @@ Satan wants to exert control over ur mind
 ## Enemy Strat
 Mind is complex -> many suble attacks
 ### Question God's Authority
+>'Now the serpent was more cunning than any beast of the field which the Lord God had made. And he said to the woman, “==Has God indeed said==, ‘You shall not eat of every tree of the garden’==?==”' (Genesis 3:1)
+- "Did God really say that you could not eat of the tree of knowledge of good and evil?"
 
+Question God & His word -> doubt, unbelief, skepticism
+- faith is what saved you (+ makes you righteous) & it is the spiritual foundation -> attack it
+### Deception & Seduction
+Satan disguised as beautiful serpent when he met Eve (did not let on that he was directly against God, sometimes when u sin you think it is ok, that it is not a direct attack v. God b/c it's small or not that bad, etc.)
 
