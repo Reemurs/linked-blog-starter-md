@@ -2381,3 +2381,17 @@ Question God & His word -> doubt, unbelief, skepticism
 ### Deception & Seduction
 Satan disguised as beautiful serpent when he met Eve (did not let on that he was directly against God, sometimes when u sin you think it is ok, that it is not a direct attack v. God b/c it's small or not that bad, etc.)
 
+Uses: Lies, cults, "religious spirits"
+
+Ex.
+- "You can become a god."
+- "You can know the future."
+- "~~Your future, including eternity, is predestined~~. There is nothing you can do about it."
+	- God has his elect, but my choices now will determine my reward in heaven & how well I served God (was already predetermined, but if I do not try to make that right choices now I am accepting that I was predestined to be a lukewarm Christian {false} & I will fulfill that destiny)
+- "Everyone is a child of God."
+- "There are more ways to Heaven than by Jesus."
+- "God is too good to send anyone to Hell."
+- "All God expects you to do is live a good life and do the best you can."
+	- How is this wrong? Is it beca
+- "The Bible should not be taken literally."
+- "The Bible contains many errors."
