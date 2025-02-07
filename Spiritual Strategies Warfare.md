@@ -4,95 +4,55 @@ sticker: lucide//sword
 color: var(--mk-color-red)
 ---
 # The Trinity
-For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. (Ephesians 6:12)
+>For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. (Ephesians 6:12)
 
 Natural Kingdom = kingdom of world
+- That which u can experience w/ ur senses
 
-That which u can experience w/ ur senses
-
-  
-
-But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him; neither can he know them, because they are spiritually discerned. (I Corinthians 2:14)
+>But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him; neither can he know them, because they are spiritually discerned. (I Corinthians 2:14 KJV)
 
 U must be of a spiritual mindset to have spiritual discernment and turn away from sin/temptation
 
-  
-
 Spiritual warfare is "multidimensional,” which means it is fought in different dimensions. It is...
-
 1. A social battle between the believer and the world: John 15:18-27
-
 2. A personal battle between the flesh and the spirit: Galatians 5:16-26
-
 3. A supernatural battle between believers and evil spiritual powers: Ephesians 6:10-27
-
-  
 
 The thief (Satan) cometh (on earth) not but for to steal, and to kill, and to destroy: I am come that they might have life, and that they might have it more abundantly. (John 10:10)
 
 Satan fights to maintain control of the kingdoms of the world. He does not want them or your life to come under God's authority.
 
-  
+>If we say that we have no sin, we deceive ourselves and the truth is not in us. If we confess our sins, He is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness. (I John 1:8-9)
 
-If we say that we have no sin, we deceive ourselves and the truth is not in us. If we confess our sins, He is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness. (I John 1:8-9)
-
-  
-
-Despisest thou the riches of His goodness and forbearance and long suffering; not knowing that the goodness of God leadeth thee to repentance? (Romans 2:4)
-
-  
+>Despisest thou the riches of His goodness and forbearance and long suffering; not knowing that the goodness of God leadeth thee to repentance? (Romans 2:4)
 
 Rebuke can lead to repentance:
-
 ..If thy brother trespass against thee, rebuke him; and if he repent, forgive him. (Luke 17:3)
 
-  
-
 **Names for God**
-
-Jehovah-Rapha: "The Lord that healeth" Exodus 15:26 (jehovah = the lord)
-
-Jehovah-Nissi: "The Lord our banner" Exodus 17:8-15
-
-Jehovah-Shalom: "The Lord our peace" Judges 6:24
-
-Jehovah-Ra'ah: "The Lord my shepherd" Psalms 23:1
-
-Jehovah-Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
-
-Jehovah-Jireh: "The Lord who provides" Genesis 22:14
-
-Jehovah-Shammah: "The Lord is there" Ezekiel 48:35
-
-Elohim: Means God and is used wherever the creative power of God is implied
-
-Adonai: Means Lord or Master: Exodus 23:17; Isaiah 10:16,33
-
-El Shaddai: "The God who is sufficient for the needs of His People" Exodus 6:3
-
-Elolam: "The everlasting God" Genesis 21:33
-
-El Elyon: "Most high God who is exalted above other so called gods" Genesis 14:18,22
-
-Yahweh Jireh: "The Lord provides" Genesis 22:14 (Yahweh = God)
-
-Yahweh Nissi: "The Lord is my banner" Exodus 17:15
-
-Yahweh Shalom: "The Lord is peace" Judges 6:24
-
-Yahweh Sabbaoth: "The Lord of Hosts" I Samuel 1:3 
-
-Yahweh Maccaddeshcem: "The Lord thy Sanctifier" Exodus 31:13
-
-Yahweh Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
-
-Yahweh Shammah: "The Lord is there" Ezekiel 48:35
-
-Yahweh Elohim Israel: "The Lord God of Israel" Judges 5:3 
-
-Quadosh Israel: "The Holy One Of Israel" Isaiah 1:4
-
-The Lord Of Hosts: In the Biblical record, these different names of God were used when requesting God to move in a specific way on behalf of His people. For example, the name Jehovah-Rapham meaning "the Lord that healeth," was used when seeking healing. The specific name of God which should be used in spiritual warfare is "Yahweh Sabbaoth" which is translated "the Lord of hosts" in the King James version of the Bible. When you call upon that name in warfare, the battle is the Lord's and all the hosts of Heaven come to your aid.
+- Jehovah-Rapha: "The Lord that healeth" Exodus 15:26 (jehovah = the lord)
+	- Jehovah-Rapham; used when seeking healing; other names used when seeking _____
+- Jehovah-Nissi: "The Lord our banner" Exodus 17:8-15
+- Jehovah-Shalom: "The Lord our peace" Judges 6:24
+- Jehovah-Ra'ah: "The Lord my shepherd" Psalms 23:1
+- Jehovah-Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
+- Jehovah-Jireh: "The Lord who provides" Genesis 22:14
+- Jehovah-Shammah: "The Lord is there" Ezekiel 48:35
+- Elohim: Means God and is used wherever the creative power of God is implied
+- Adonai: Means Lord or Master: Exodus 23:17; Isaiah 10:16,33
+- El Shaddai: "The God who is sufficient for the needs of His People" Exodus 6:3
+- Elolam: "The everlasting God" Genesis 21:33
+- El Elyon: "Most high God who is exalted above other so called gods" Genesis 14:18, 22
+- Yahweh Jireh: "The Lord provides" Genesis 22:14 (Yahweh = God)
+- Yahweh Nissi: "The Lord is my banner" Exodus 17:15
+- Yahweh Shalom: "The Lord is peace" Judges 6:24
+- Yahweh Sabbaoth: "The Lord of Hosts" I Samuel 1:3 
+- Yahweh Maccaddeshcem: "The Lord thy Sanctifier" Exodus 31:13
+- Yahweh Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
+- Yahweh Shammah: "The Lord is there" Ezekiel 48:35
+- Yahweh Elohim Israel: "The Lord God of Israel" Judges 5:3 
+- Quadosh Israel: "The Holy One Of Israel" Isaiah 1:4
+- The Lord Of Hosts: specific name of God which should be used in spiritual warfare: "Yahweh Sabbaoth." When you call upon that name in warfare, the battle is the Lord's and all the hosts of Heaven come to your aid.
 
   
 
@@ -108,175 +68,89 @@ Authority over the forces of evil: The death of Jesus not only freed mankind fro
 
 ...It is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us. (Romans 8:34)
 
-  
-
 **Names of Jesus**
-
-The name "Jesus" means "Savior or deliverer" (Matthew 1:21). The name "Christ" means "the anointed one" (John 4:25- 26).
-
-Advocate 1 John 2:1
-
-Almighty Revelation 1:8
-
-Alpha and Omega Revelation 21:6
-
-Amen Revelation 3:14
-
-Ancient of Days Daniel 7:9
-
-Author/Finisher of our Faith Hebrews 12:2
-
-Author of Eternal Salvation Hebrews 5:9
-
-Begotten of God 1 John 5:18
-
-Beloved Ephesians 1:6
-
-Branch Zechariah 3:8
-
-Bread of Life John 6:48
-
-Bright and Morning Star Revelation 22:16
-
-Captain of the Lord's Host 1 John 5:20
-
-Carpenter's Son Joshua 5:15
-
-Chief Cornerstone Matthew 13:55
-
-Chief Among Ten Thousand 1 Peter 2:6
-
-Christ Song of Solomon 5:10
-
-Counselor John 1:41
-
-Deliverer Isaiah 9:6
-
-Door Romans 11:26
-
-Elect John 10:9
-
-Emmanuel Isaiah 42:1
-
-Eternal Life Matthew 1:23
-
-Faithful and True Revelation 19:11
-
-Faithful Witness Revelation 1:5
-
-First Begotten Hebrews 1:6
-
-First and Last Revelation 22:13
-
-Glorious Lord Isaiah 33:21
-
-Great High Priest Hebrews 4:14
-
-Head of the Body Colossians 1:18
-
-Head over all things Ephesians 1:22
-
-Headstone Psalms 118:22
-
-Heir of all things Hebrews 1:2
-
-Holy One of Israel Isaiah 41:14
-
-Hope of Glory Colossians 1:27
-
-I Am John 8:58
-
-Image of the Invisible God Colossians 1:15
-
-Jesus Christ Our Lord Romans 1:3
-
-King of Glory Psalms 24:7
-
-Lamb of God John 1:29
-
-Light of the World John 8:12
-
-Lily of the Valleys Song of Solomon 2:1
-
-Living Bread John 6:51
-
-Lord God Almighty Revelation 4:8
-
-Lord of All Acts 10:36
-
-Lord Our Righteousness Jeremiah 23:6
-
-Love 1 John 4:8
-
-Man of Sorrows Isaiah 53:3
-
-Master Matthew 23:10
-
-Messiah Daniel 9:25
-
-Most Holy Daniel 9:24
-
-Nazarene Matthew 2:23
-
-Only Wise God 1 Timothy 1:17
-
-Our Passover 1 Corinthians 5:7
-
-Physician Luke 4:23
-
-Prince of Peace Isaiah 9:6
-
-Propitiation Romans 3:25
-
-Redeemer Isaiah 59:20
-
-Resurrection John 11:25
-
-Righteous Servant Isaiah 53:11
-
-Rock 1 Corinthians 10:4
-
-Root of Jesse Isaiah 11:10
-
-Rose of Sharon Song of Solomon 2:1
-
-Savior of the World 1 John 4:14
-
-Seed of David John 7:42
-
-Seed of the Woman Genesis 3:15
-
-Shepherd John 10:11
-
-Son of God Romans 1:4
-
-Son of Man Acts 7:56
-
-Son of Mary Mark 6:3
-
-Stone Matthew 21:42
-
-Sun of Righteousness Malachi 4:2
-
-Sure Foundation Isaiah 28:16
-
-Teacher John 3:2
-
-Truth John 14:6
-
-Unspeakable Gift 1 Corinthians 9:15
-
-Vine John 15:1
-
-Way John 14:6
-
-Wonderful Isaiah 9:6
-
-Word John 1:14
-
-Word of God Revelation 19:13
-
-  
+The name "Jesus" means "Savior or deliverer" (Matthew 1:21). The name "Christ" means "the anointed one" (John 4:25-26).
+- Advocate – 1 John 2:1
+- Almighty – Revelation 1:8
+- Alpha and Omega – Revelation 21:6
+- Amen – Revelation 3:14
+- Ancient of Days – Daniel 7:9
+- Author/Finisher of our Faith – Hebrews 12:2
+- Author of Eternal Salvation – Hebrews 5:9
+- Begotten of God – 1 John 5:18
+- Beloved – Ephesians 1:6
+- Branch – Zechariah 3:8
+- Bread of Life – John 6:48
+- Bright and Morning Star – Revelation 22:16
+- Captain of the Lord's Host – 1 John 5:20
+- Carpenter's Son – Joshua 5:15
+- Chief Cornerstone – Matthew 13:55
+- Chief Among Ten Thousand – 1 Peter 2:6
+- Christ – Song of Solomon 5:10
+- Counselor – John 1:41
+- Deliverer – Isaiah 9:6
+- Door – Romans 11:26
+- Elect – John 10:9
+- Emmanuel – Isaiah 42:1
+- Eternal Life – Matthew 1:23
+- Faithful and True – Revelation 19:11
+- Faithful Witness – Revelation 1:5
+- First Begotten – Hebrews 1:6
+- First and Last – Revelation 22:13
+- Glorious Lord – Isaiah 33:21
+- Great High Priest – Hebrews 4:14
+- Head of the Body – Colossians 1:18
+- Head over all things –Ephesians 1:22
+- Headstone – Psalms 118:22
+- Heir of all things – Hebrews 1:2
+- Holy One of Israel – Isaiah 41:14
+- Hope of Glory – Colossians 1:27
+- I Am – John 8:58
+- Image of the Invisible God – Colossians 1:15
+- Jesus Christ Our Lord – Romans 1:3
+- King of Glory – Psalms 24:7
+- Lamb of God – John 1:29
+- Light of the World – John 8:12
+- Lily of the Valleys – Song of Solomon 2:1
+- Living Bread – John 6:51
+- Lord God Almighty – Revelation 4:8
+- Lord of All Acts – 10:36
+- Lord Our Righteousness – Jeremiah 23:6
+- Love – 1 John 4:8
+- Man of Sorrows – Isaiah 53:3
+- Master – Matthew 23:10
+- Messiah – Daniel 9:25
+- Most Holy – Daniel 9:24
+- Nazarene – Matthew 2:23
+- Only Wise God – 1 Timothy 1:17
+- Our Passover – 1 Corinthians 5:7
+- Physician – Luke 4:23
+- Prince of Peace – Isaiah 9:6
+- Propitiation – Romans 3:25
+- Redeemer – Isaiah 59:20
+- Resurrection – John 11:25
+- Righteous Servant – Isaiah 53:11
+- Rock – 1 Corinthians 10:4
+- Root of Jesse – Isaiah 11:10
+- Rose of Sharon – Song of Solomon 2:1
+- Savior of the World – 1 John 4:14
+- Seed of David – John 7:42
+- Seed of the Woman – Genesis 3:15
+- Shepherd – John 10:11
+- Son of God – Romans 1:4
+- Son of Man – Acts 7:56
+- Son of Mary – Mark 6:3
+- Stone – Matthew 21:42
+- Sun of Righteousness – Malachi 4:2
+- Sure Foundation – Isaiah 28:16
+- Teacher – John 3:2
+- Truth – John 14:6
+- Unspeakable Gift – 1 Corinthians 9:15
+- Vine – John 15:1
+- Way – John 14:6
+- Wonderful – Isaiah 9:6
+- Word – John 1:14
+- Word of God – Revelation 19:13
 
 **Holy Spirit**
 
@@ -300,63 +174,35 @@ Likewise the Spirit also helpeth our infirmities: for we know not what we should
 
 The Holy Spirit guides your warfare. He reveals spiritual things that cannot be known naturally. The Holy Spirit speaks the will and words of God to you. He also intercedes for you as you are engaged in spiritual battles.
 
-  
-
 Holy Spirit has feelings that can be affected by man’s actions:
-
 the Bible warns that we should not lie to the Holy Spirit (Acts 5:3-4), resist the Spirit (Acts 7:51), quench the Spirit (I Thessalonians 5:19), grieve the Spirit (Psalms 78:40 and Ephesians 4:30), insult the Spirit (Hebrews 6:4-6), blaspheme the Spirit (Matthew 12:31-32), or vex the Spirit (Isaiah 63:10).
 
-  
-
 **Names**
-
-The Spirit of God: I Corinthians 3:16
-
-The Spirit of Christ: Romans 8:9
-
-The Eternal Spirit: Hebrews 9:14
-
-The Spirit of Truth: John 16:13
-
-The Spirit of Grace: Hebrews 10:29
-
-The Spirit of Life: Romans 8:2
-
-The Spirit of Glory: I Peter 4:14
-
-The Spirit of Wisdom and Revelation: Ephesians 1:17
-
-The Comforter: John 14:26
-
-The Spirit of Promise: Acts 1:4-5
-
-The Spirit of Holiness: Romans 1:4
-
-The Spirit of Faith: II Corinthians 4:13
-
-The Spirit of Adoption: Romans 8:15
+- The Spirit of God: I Corinthians 3:16
+- The Spirit of Christ: Romans 8:9
+- The Eternal Spirit: Hebrews 9:14
+- The Spirit of Truth: John 16:13
+- The Spirit of Grace: Hebrews 10:29
+- The Spirit of Life: Romans 8:2
+- The Spirit of Glory: I Peter 4:14
+- The Spirit of Wisdom and Revelation: Ephesians 1:17
+- The Comforter: John 14:26
+- The Spirit of Promise: Acts 1:4-5
+- The Spirit of Holiness: Romans 1:4
+- The Spirit of Faith: II Corinthians 4:13
+- The Spirit of Adoption: Romans 8:15
 
 **Symbols**
+- The dove: John 1:32, Song Of Solomon 6:9
+- Oil: Luke 4:18, Acts 10:38; Hebrews 1:9
+- Water: John 7:37-39; Isaiah 44:3
+- A seal: Ephesians 1:13; 4:30; II Corinthians 1:22
+- Wind: John 3:8; Acts 2:1-2
+- Fire: Exodus 3:2; 13:21; Leviticus 9:24; Acts 2:3
 
-The dove: John 1:32, Song Of Solomon 6:9
-
-Oil: Luke 4:18, Acts 10:38; Hebrews 1:9
-
-Water: John 7:37-39; Isaiah 44:3
-
-A seal: Ephesians 1:13; 4:30; II Corinthians 1:22
-
-Wind: John 3:8; Acts 2:1-2
-
-Fire: Exodus 3:2; 13:21; Leviticus 9:24; Acts 2:3
-
-  
-
-Thou believest that there is one God; thou doest well: the devils also believe and tremble. (James 2:19)
+>Thou believest that there is one God; thou doest well: the devils also believe and tremble. (James 2:19 KJV)
 
 The spiritual forces of evil believe in God and are fearful of Him, but they are still evil. To simply believe in God is not enough. You must acknowledge Him as Lord of your life. You must accept the sacrifice of Jesus Christ for your sin, repent, ask forgiveness, and become a new creature in Christ.
-
-  
 # Angels
 
 The angel of the Lord encampeth round about them that fear Him, and delivereth them. (Psalms 34:7)
@@ -399,66 +245,38 @@ In Revelation 4:6? Guardians of God/highest order of angels?
 
 Have (human?) hands & lead worship of God in heaven?
 
-  
-
 **Living Creatures**
+>“and before the throne there was something like a sea of glass, like crystal; and in the center and around the throne, four living creatures full of eyes in front and behind. The first living creature was like a lion, the second creature like a calf, the third creature had a face like that of a man, and the fourth creature was like a flying eagle. And the four living creatures, each one of them having six wings, are full of eyes around and within; and day and night they do not cease to say, “Holy, holy, holy is the Lord God, the Almighty, who was and who is and who is to come.” And when the living creatures give glory, honor, and thanks to Him who sits on the throne, to Him who lives forever and ever, the twenty-four elders will fall down before Him who sits on the throne, and they will worship Him who lives forever and ever, and will cast their crowns before the throne, saying, “Worthy are You, our Lord and our God, to receive glory and honor and power; for You created all things, and because of Your will they existed, and were created.”” (Revelation 4:6-11)
 
-“and before the throne there was something like a sea of glass, like crystal; and in the center and around the throne, four living creatures full of eyes in front and behind. The first living creature was like a lion, the second creature like a calf, the third creature had a face like that of a man, and the fourth creature was like a flying eagle. And the four living creatures, each one of them having six wings, are full of eyes around and within; and day and night they do not cease to say, “Holy, holy, holy is the Lord God, the Almighty, who was and who is and who is to come.” And when the living creatures give glory, honor, and thanks to Him who sits on the throne, to Him who lives forever and ever, the twenty-four elders will fall down before Him who sits on the throne, and they will worship Him who lives forever and ever, and will cast their crowns before the throne, saying, “Worthy are You, our Lord and our God, to receive glory and honor and power; for You created all things, and because of Your will they existed, and were created.”” (Revelation 4:6-11 NASB2020)
-
-  
-
-“And I saw between the throne (with the four living creatures) and the elders a Lamb standing, as if slaughtered, having seven horns and seven eyes, which are the seven spirits of God sent out into all the earth. And He came and took the scroll out of the right hand of Him who sat on the throne. When He had taken the scroll, the four living creatures and the twenty-four elders fell down before the Lamb, each one holding a harp and golden bowls full of incense, which are the prayers of the saints. And they *sang a new song, saying, “Worthy are You to take the scroll and to break its seals; for You were slaughtered, and You purchased people for God with Your blood from every tribe, language, people, and nation. You have made them into a kingdom and priests to our God, and they will reign upon the earth.”” (Revelation 5:6-10 NASB2020)
+>“And I saw between the throne (with the four living creatures) and the elders a Lamb standing, as if slaughtered, having seven horns and seven eyes, which are the seven spirits of God sent out into all the earth. And He came and took the scroll out of the right hand of Him who sat on the throne. When He had taken the scroll, the four living creatures and the twenty-four elders fell down before the Lamb, each one holding a harp and golden bowls full of incense, which are the prayers of the saints. And they \*sang a new song, saying, “Worthy are You to take the scroll and to break its seals; for You were slaughtered, and You purchased people for God with Your blood from every tribe, language, people, and nation. You have made them into a kingdom and priests to our God, and they will reign upon the earth.”” (Revelation 5:6-10)
 
 Manifest fullness of divine life & chief ministry = worship God?
 
-  
-
 **Michael**
+Only Archangel mentioned – Daniel 10:21; 12:1; Jude 9
 
-Only Archangel mentioned
+>“And there was war in heaven, Michael and his angels waging war with the dragon. The dragon and his angels waged war,” (Revelation 12:7)
 
-Daniel 10:13,21; 12:1; Jude 9; Revelation 12:7
-
-“And there was war in heaven, Michael and his angels waging war with the dragon. The dragon and his angels waged war,”
-
-(Revelation 12:7 NASB2020)
-
-Has charge over an angel army
-
-  
-
-“But the prince of the kingdom of Persia was standing in my way for twenty-one days; then behold, Michael, one of the chief princes, came to help me, for I had been left there with the kings of Persia.” (Daniel 10:13 NASB2020)
+Has charge over an angel army:
+>“But the prince of the kingdom of Persia was standing in my way for twenty-one days; then behold, Michael, one of the chief princes, came to help me, for I had been left there with the kings of Persia.” (Daniel 10:13 NASB2020)
 
 A Prince of Israel
 
-  
-
 **Gabriel**
-
 Name meaning = mighty man of God
 
-Daniel 8:16; 9:21; interpreted vision 4 Daniel 
+Daniel 8:16; 9:21 – interpreted vision 4 Daniel 
 
-Luke 1:19,26 Announced birth of John & Jesus
-
-  
+Luke 1:19, 26 – Announced birth of John & Jesus
 
 **Special Groups**
-
-Angels of the seven churches: Revelation 1:20
-
-Four angels who control the winds:  Revelation 1:7
-
-Seven angels who stand before God: Revelation 8:2
-
-Seven angels who administrate the seven last plagues: Revelation 15:1,7
-
-Twenty-four elders (these may be angelic beings): Revelation 4 and 5 (I think they are ppl)
-
-  
+- Angels of the seven churches: Revelation 1:20
+- Four angels who control the winds:  Revelation 1:7
+- Seven angels who stand before God: Revelation 8:2
+- Seven angels who administrate the seven last plagues: Revelation 15:17
+- Twenty-four elders (these may be angelic beings): Revelation 4 and 5 (I think they are ppl)
 
 **Attributes**
-
 - Are spirits: “Are they not all ministering spirits, sent out to provide service for the sake of those who will inherit salvation?” (Hebrews 1:14 NASB2020)
 - Are asexual (sexless is debated, maybe not b/c be Philip but are still marriageless): Luke 20:34-36
 - Are mortal: Hebrews 2:14 (Devil will be destroyed by God & he was an angel)
@@ -604,14 +422,10 @@ Read Psalms 78:36,40 and Ecclesiastes 5:6. Israel had a special angel caring for
 
   
 # Satan
-
-“Be of sober spirit, be on the alert. Your adversary, the devil, prowls around like a roaring lion, seeking someone to devour.” (1 Peter 5:8)
-
-  
+>“Be of sober spirit, be on the alert. Your adversary, the devil, prowls around like a roaring lion, seeking someone to devour.” (1 Peter 5:8)
 
 **God Created Evil**
-
-“The One forming light and creating darkness, Causing well-being and creating disaster; I am the Lord who does all these things.” (Isaiah 45:7)
+>“The One forming light and creating darkness, Causing well-being and creating disaster; I am the Lord who does all these things.” (Isaiah 45:7)
 
 Did God create evil? Just like how darkness is the absence of light, evil is the absence of good. However God still created darkness, so he created evil. He created free will, so he created evil. This is because a person can choose to do good or bad. Why did God create evil? God knows that there has to be a counterparts for us not to function as robots. Why do we have to suffer to be strong? It makes the highs better. God knows the mysteries, don’t question him. He knows the evil plans, so he is in control of everything and you can trust him to guide you and protect you. He created evil by free will, but that does not mean that he is evil. He just made the balance of the world (or some other reason humans do not know of). God creates disasters to punish and to build.
 
@@ -969,34 +783,20 @@ Satan is still active in the world today and he still has power. But he has no a
 
   
 # Demons
-
-“But the Spirit explicitly says that in later times some will fall away from the faith, paying attention to deceitful spirits and teachings of demons,” (1 Timothy 4:1)
+>“But the Spirit explicitly says that in later times some will fall away from the faith, paying attention to deceitful spirits and teachings of demons,” (1 Timothy 4:1)
 
 Lose salvation? Are they a false save (seed on and soil) or will they eventually return? Don’t worry about your salvation the Holy Spirit assured you you’re saved and nothing could ever separate you from God. So, they were false converts or they may return (no idea if this is scriptural).
 
-  
-
 You should not minimize the power of demon spirits in the world today, yet you must not become so preoccupied with them that you see a demon in everything that happens and in everyone around you. You should take a simple, literal, Biblical approach to the subject of demons. Do not study secular books about such powers of evil. Your only sources of study in these areas should be the Word of God or good Christian literature.
 
-  
+>“for by Him all things were created, both in the heavens and on earth, visible and invisible, whether thrones, or dominions, or rulers, or authorities—all things have been created through Him and for Him. (Colossians 1:16)
+- Even the evil principalities & dominions:
+>“All things came into being through Him, and apart from Him not even one thing came into being that has come into being.” (John 1:3)
 
-“for by Him all things were created, both in the heavens and on earth, visible and invisible, whether thrones, or dominions, or rulers, or authorities—all things have been created through Him and for Him. (Colossians 1:16)
+>“And there was war in heaven, Michael and his angels waging war with the dragon. The dragon and his angels waged war, and they did not prevail, and there was no longer a place found for them in heaven. And the great dragon was thrown down, the serpent of old who is called the devil and Satan, who deceives the whole world; he was thrown down to the earth, and his angels were thrown down with him.” (Revelation 12:7-9)
 
-Even the evil principalities & dominions
-
-  
-
-“All things came into being through Him, and apart from Him not even one thing came into being that has come into being.” (John 1:3)
-
-  
-
-“And there was war in heaven, Michael and his angels waging war with the dragon. The dragon and his angels waged war, and they did not prevail, and there was no longer a place found for them in heaven. And the great dragon was thrown down, the serpent of old who is called the devil and Satan, who deceives the whole world; he was thrown down to the earth, and his angels were thrown down with him.” (Revelation 12:7-9)
-
-  
-
-Confusión:
-
-“For if God did not spare angels when they sinned, but cast them into hell and committed them to pits of darkness, held for judgment;” (2 Peter 2:4)
+Confusion:
+>“For if God did not spare angels when they sinned, but cast them into hell and committed them to pits of darkness, held for judgment;” (2 Peter 2:4)
 
   
 
@@ -1233,86 +1033,45 @@ When Jesus was crucified for the sins of all mankind and resurrected from the de
 
 Satan will not acknowledge the claims of Jesus over the kingdoms of the world until the final conflict.
 
-  
-
 **Structure of World**
-
 Evil:
-
-“who gave Himself for our sins so that He might rescue us from this present evil age, according to the will of our God and Father,” (Galatians 1:4)
-
-  
+>“who gave Himself for our sins so that He might rescue us from this present evil age, according to the will of our God and Father,” (Galatians 1:4)
 
 Without God:
-
-“remember that you were at that time separate from Christ, excluded from the people of Israel, and strangers to the covenants of the promise, having no hope and without God in the world.” (Ephesians 2:12)
-
-  
+>“remember that you were at that time separate from Christ, excluded from the people of Israel, and strangers to the covenants of the promise, having no hope and without God in the world.” (Ephesians 2:12)
 
 Deception to ensnare believers to become part of world system:
-
-“For many deceivers have gone out into the world, those who do not acknowledge Jesus Christ as coming in the flesh. This is the deceiver and the antichrist. Watch yourselves, that you do not lose what we have accomplished, but that you may receive a full reward.” (2 John 1:7-8)
-
-  
+>“For many deceivers have gone out into the world, those who do not acknowledge Jesus Christ as coming in the flesh. This is the deceiver and the antichrist. Watch yourselves, that you do not lose what we have accomplished, but that you may receive a full reward.” (2 John 1:7-8)
 
 Judged & condemned by God:
-
-“But when we are judged, we are disciplined by the Lord so that we will not be condemned along with the world.” (1 Corinthians 11:32)
-
-  
+>“But when we are judged, we are disciplined by the Lord so that we will not be condemned along with the world.” (1 Corinthians 11:32)
 
 **Elements of the World**
-
 = elementary principles of world & lead to spiritual bondage:
-
-“So we too, when we were children, were held in bondage under the elementary principles of the world.” (Galatians 4:3)
-
-  
+>“So we too, when we were children, were held in bondage under the elementary principles of the world.” (Galatians 4:3)
 
 Includes rudiments of world:
-
 Regulations on which the world’s structure rests. Different from the principles of the Kingdom’s structure:
-
-“See to it that there is no one who takes you captive through philosophy and empty deception in accordance with human tradition, in accordance with the elementary principles of the world, rather than in accordance with Christ. If you have died with Christ to the elementary principles of the world, why, as if you were living in the world, do you submit yourself to decrees, such as,” (Colossians 2:8, 20)
-
+>“See to it that there is no one who takes you captive through philosophy and empty deception in accordance with human tradition, in accordance with the elementary principles of the world, rather than in accordance with Christ. If you have died with Christ to the elementary principles of the world, why, as if you were living in the world, do you submit yourself to decrees, such as,” (Colossians 2:8, 20)
 + philosophy of the world: Principles of knowledge that aren’t based on Christ
 
-  
-
 **Spirit of the World**
-
 Directly opposes Holy Spirit:
-
-“Now we have not received the spirit of the world, but the Spirit who is from God, so that we may know the things freely given to us by God.” (1 Corinthians 2:12)
-
-  
+>“Now we have not received the spirit of the world, but the Spirit who is from God, so that we may know the things freely given to us by God.” (1 Corinthians 2:12)
 
 **Wisdom of World**
-
-“For the wisdom of this world is foolishness in the sight of God. For it is written: “He is the one who catches the wise by their craftiness”;” (1 Corinthians 3:19)
-
-He uses the wise’s their wisdom against them to catch them
-
-  
+>“For the wisdom of this world is foolishness in the sight of God. For it is written: “He is the one who catches the wise by their craftiness”;” (1 Corinthians 3:19)
+- He uses the wise’s their wisdom against them to catch them
 
 **Course of World**
-
 Cycle/routine/way it operates:
-
-“in which you previously walked according to the course of this world, according to the prince of the power of the air, of the spirit that is now working in the sons of disobedience.” (Ephesians 2:2)
-
-  
+>“in which you previously walked according to the course of this world, according to the prince of the power of the air, of the spirit that is now working in the sons of disobedience.” (Ephesians 2:2)
 
 **Voices of World**
-
 Contrary to God’s voice:
-
-“We are destroying arguments and all arrogance raised against the knowledge of God, and we are taking every thought captive to the obedience of Christ,” (2 Corinthians 10:5)
-
-  
+>“We are destroying arguments and all arrogance raised against the knowledge of God, and we are taking every thought captive to the obedience of Christ,” (2 Corinthians 10:5)
 
 **Peace of World:**
-
 Temporary, fragile, deceptive:
 
 “Peace I leave you, My peace I give you; not as the world gives, do I give to you. Do not let your hearts be troubled, nor fearful.” (John 14:27)
@@ -1326,43 +1085,25 @@ Temporary, fragile, deceptive:
   
 
 **Attitude of World**
-
 Hates God:
-
-“You adulteresses, do you not know that friendship with the world is hostility toward God? Therefore whoever wants to be a friend of the world makes himself an enemy of God.” (James 4:4)
-
-  
+>“You adulteresses, do you not know that friendship with the world is hostility toward God? Therefore whoever wants to be a friend of the world makes himself an enemy of God.” (James 4:4)
 
 Hates believers:
-
-““If the world hates you, you know that it has hated Me before it hated you. If you were of the world, the world would love you as its own; but because you are not of the world, but I chose you out of the world, because of this the world hates you.” (John 15:18-19)
-
-  
+>“If the world hates you, you know that it has hated Me before it hated you. If you were of the world, the world would love you as its own; but because you are not of the world, but I chose you out of the world, because of this the world hates you.” (John 15:18-19)
 
 **Flesh**
-
 1. Compulsive inner force which expresses itself in rebellion through sin
 2. Body of man/beast
 
-  
-
-“For I know that good does not dwell in me, that is, in my flesh; for the willing is present in me, but the doing of the good is not. For the good that I want, I do not do, but I practice the very evil that I do not want. But if I do the very thing I do not want, I am no longer the one doing it, but sin that dwells in me.” (Romans 7:18-20)
-
-  
+>“For I know that good does not dwell in me, that is, in my flesh; for the willing is present in me, but the doing of the good is not. For the good that I want, I do not do, but I practice the very evil that I do not want. But if I do the very thing I do not want, I am no longer the one doing it, but sin that dwells in me.” (Romans 7:18-20)
 
 Everyone has it:
+>“Therefore, just as through one man sin entered into the world, and death through sin, and so death spread to all mankind, because all sinned—” (Romans 5:12)
 
-“Therefore, just as through one man sin entered into the world, and death through sin, and so death spread to all mankind, because all sinned—” (Romans 5:12)
-
-  
-
-“for all have sinned and fall short of the glory of God,” (Romans 3:23)
-
-  
+>“for all have sinned and fall short of the glory of God,” (Romans 3:23)
 
 **Lust of the Flesh**
-
-“But I say, walk by the Spirit, and you will not carry out the desire of the flesh.” (Galatians 5:16)
+>“But I say, walk by the Spirit, and you will not carry out the desire of the flesh.” (Galatians 5:16)
 
   
 
@@ -1379,56 +1120,32 @@ Lusting after evil things pleases your fleshly nature. Please God, not an evil f
   
 
 How it develops:
-
 Lust/sinful desire 1st enters through natural senses. The eye sees something evil or the ear hears something wicked. A touch, a taste, or even a smell can even foster lust. This is how Satan uses the environment of the world to tempt the flesh. The senses trigger an evil thought/desire in the mind. That lustful thought is what tempts you to do evil.
 
-  
+>“No one is to say when he is tempted, “I am being tempted by God”; for God cannot be tempted by evil, and He Himself does not tempt anyone. But each one is tempted when he is carried away and enticed by his own lust.” (James 1:13-14)
 
-“No one is to say when he is tempted, “I am being tempted by God”; for God cannot be tempted by evil, and He Himself does not tempt anyone. But each one is tempted when he is carried away and enticed by his own lust.” (James 1:13-14)
-
-  
-
-“No temptation has overtaken you except something common to mankind; and God is faithful, so He will not allow you to be tempted beyond what you are able, but with the temptation will provide the way of escape also, so that you will be able to endure it.” (1 Corinthians 10:13)
-
-  
+>“No temptation has overtaken you except something common to mankind; and God is faithful, so He will not allow you to be tempted beyond what you are able, but with the temptation will provide the way of escape also, so that you will be able to endure it.” (1 Corinthians 10:13)
 
 Since the mind is used to tempt the flesh, Paul warns:
-
-“For the mind set on the flesh is death, but the mind set on the Spirit is life and peace, because the mind set on the flesh is hostile toward God; for it does not subject itself to the law of God, for it is not even able to do so, and those who are in the flesh cannot please God.” (Romans 8:6-8)
-
-  
+>“For the mind set on the flesh is death, but the mind set on the Spirit is life and peace, because the mind set on the flesh is hostile toward God; for it does not subject itself to the law of God, for it is not even able to do so, and those who are in the flesh cannot please God.” (Romans 8:6-8)
 
 Results:
-
 If you yield to lust, temptation results and if you yield to temptation, it results in sin which leads to death.
-
-“Then when lust has conceived, it gives birth to sin; and sin, when it has run its course, brings forth death.” (James 1:15)
-
-  
+>“Then when lust has conceived, it gives birth to sin; and sin, when it has run its course, brings forth death.” (James 1:15)
 
 Made the world corrupt:
-
-“Through these He has granted to us His precious and magnificent promises, so that by them you may become partakers of the divine nature, having escaped the corruption that is in the world on account of lust.” (2 Peter 1:4)
-
-  
+>“Through these He has granted to us His precious and magnificent promises, so that by them you may become partakers of the divine nature, having escaped the corruption that is in the world on account of lust.” (2 Peter 1:4)
 
 Made flesh corrupt:
-
-“that, in reference to your former way of life, you are to rid yourselves of the old self, which is being corrupted in accordance with the lusts of deceit,” (Ephesians 4:22)
-
-  
+>“that, in reference to your former way of life, you are to rid yourselves of the old self, which is being corrupted in accordance with the lusts of deceit,” (Ephesians 4:22)
 
 Spirit & Flesh Relationship:
+>“For the desire of the flesh is against the Spirit, and the Spirit against the flesh; for these are in opposition to one another, in order to keep you from doing whatever you want.” (Galatians 5:17)
 
-“For the desire of the flesh is against the Spirit, and the Spirit against the flesh; for these are in opposition to one another, in order to keep you from doing whatever you want.” (Galatians 5:17)
-
-  
-
-“I find then the principle that evil is present in me, the one who wants to do good. For I joyfully agree with the law of God in the inner person, but I see a different law in the parts of my body waging war against the law of my mind, and making me a prisoner of the law of sin, the law which is in my body’s parts.” (Romans 7:21-23)
+>“I find then the principle that evil is present in me, the one who wants to do good. For I joyfully agree with the law of God in the inner person, but I see a different law in the parts of my body waging war against the law of my mind, and making me a prisoner of the law of sin, the law which is in my body’s parts.” (Romans 7:21-23)
 
 The lusts of the flesh, if not conquered, lead to sinful **works of the flesh** which result in spiritual death:
-
-“Now the deeds of the flesh are evident, which are: sexual immorality, impurity, indecent behavior, idolatry, witchcraft, hostilities, strife, jealousy, outbursts of anger, selfish ambition, dissensions, factions, envy, drunkenness, carousing, and things like these, of which I forewarn you, just as I have forewarned you, that those who practice such things will not inherit the kingdom of God.” (Galatians 5:19-21)
+>“Now the deeds of the flesh are evident, which are: sexual immorality, impurity, indecent behavior, idolatry, witchcraft, hostilities, strife, jealousy, outbursts of anger, selfish ambition, dissensions, factions, envy, drunkenness, carousing, and things like these, of which I forewarn you, just as I have forewarned you, that those who practice such things will not inherit the kingdom of God.” (Galatians 5:19-21)
 
   
 
@@ -1460,27 +1177,18 @@ Satan's original sin was that he wanted to be like God, so his present power and
 
 God = love, Satan = hatred & destruction
 
-“Little children, make sure no one deceives you; the one who practices righteousness is righteous, just as He is righteous; the one who practices sin is of the devil; for the devil has been sinning from the beginning. The Son of God appeared for this purpose, to destroy the works of the devil. No one who has been born of God practices sin, because His seed remains in him; and he cannot sin continually, because he has been born of God. By this the children of God and the children of the devil are obvious: anyone who does not practice righteousness is not of God, nor the one who does not love his brother and sister. For this is the message which you have heard from the beginning, that we are to love one another; not as Cain, who was of the evil one and murdered his brother. And for what reason did he murder him? Because his own deeds were evil, but his brother’s were righteous. Do not be surprised, brothers and sisters, if the world hates you. We know that we have passed out of death into life, because we love the brothers and sisters. The one who does not love remains in death. Everyone who hates his brother or sister is a murderer, and you know that no murderer has eternal life remaining in him.” (1 John 3:7-15)
-
-  
+>“Little children, make sure no one deceives you; the one who practices righteousness is righteous, just as He is righteous; the one who practices sin is of the devil; for the devil has been sinning from the beginning. The Son of God appeared for this purpose, to destroy the works of the devil. No one who has been born of God practices sin, because His seed remains in him; and he cannot sin continually, because he has been born of God. By this the children of God and the children of the devil are obvious: anyone who does not practice righteousness is not of God, nor the one who does not love his brother and sister. For this is the message which you have heard from the beginning, that we are to love one another; not as Cain, who was of the evil one and murdered his brother. And for what reason did he murder him? Because his own deeds were evil, but his brother’s were righteous. Do not be surprised, brothers and sisters, if the world hates you. We know that we have passed out of death into life, because we love the brothers and sisters. The one who does not love remains in death. Everyone who hates his brother or sister is a murderer, and you know that no murderer has eternal life remaining in him.” (1 John 3:7-15)
 
 God creates life, Satan promotes death:
-
-“Therefore, since the children share in flesh and blood, He Himself likewise also partook of the same, so that through death He might destroy the one who has the power of death, that is, the devil,” (Hebrews 2:14)
-
-  
+>“Therefore, since the children share in flesh and blood, He Himself likewise also partook of the same, so that through death He might destroy the one who has the power of death, that is, the devil,” (Hebrews 2:14)
 
 Satan opposes God’s program:
 
 Denies his existence:
-
-“The fool has said in his heart, “There is no God.” They are corrupt, they have committed detestable acts; There is no one who does good. The Lord has looked down from heaven upon the sons of mankind To see if there are any who understand, Who seek God. They have all turned aside, together they are corrupt; There is no one who does good, not even one.” (Psalm 14:1-3)
-
-  
+>“The fool has said in his heart, “There is no God.” They are corrupt, they have committed detestable acts; There is no one who does good. The Lord has looked down from heaven upon the sons of mankind To see if there are any who understand, Who seek God. They have all turned aside, together they are corrupt; There is no one who does good, not even one.” (Psalm 14:1-3)
 
 Promotes lies:
-
-“Then that lawless one will be revealed, whom the Lord will eliminate with the breath of His mouth and bring to an end by the appearance of His coming; that is, the one whose coming is in accord with the activity of Satan, with all power and false signs and wonders, and with all the deception of wickedness for those who perish, because they did not accept the love of the truth so as to be saved. For this reason God will send upon them a deluding influence so that they will believe what is false, in order that they all may be judged who did not believe the truth, but took pleasure in wickedness.” (2 Thessalonians 2:8-12)
+>“Then that lawless one will be revealed, whom the Lord will eliminate with the breath of His mouth and bring to an end by the appearance of His coming; that is, the one whose coming is in accord with the activity of Satan, with all power and false signs and wonders, and with all the deception of wickedness for those who perish, because they did not accept the love of the truth so as to be saved. For this reason God will send upon them a deluding influence so that they will believe what is false, in order that they all may be judged who did not believe the truth, but took pleasure in wickedness.” (2 Thessalonians 2:8-12)
 
   
 
@@ -1552,7 +1260,7 @@ The 4 accusations of Satan & pray 4 unbelievers
 
   
 # God's Battle Plan
-“The one who practices sin is of the devil; for the devil has been sinning from the beginning. The Son of God appeared for this purpose, to destroy the works of the devil.” (1 John 3:8)
+>“The one who practices sin is of the devil; for the devil has been sinning from the beginning. The Son of God appeared for this purpose, to destroy the works of the devil.” (1 John 3:8)
 
 Strategy based upon communication with our Commander-in-Chief by prayer, fasting, and the written Word of God. When you do not understand God's purpose and plan, you may be tempted to become discouraged in the conflicts of life. This is why many Christian soldiers fail in warfare: They do not understand the divine purpose behind the battle.
 
@@ -2528,10 +2236,153 @@ How to kill the flesh:
 - you will be blameless -> no low self esteem -> no death & mourning
 - What the fleeting pleasures can't do for you, God can: provide true fulfillment (find life & peace) & satisfaction w/ no stings attached (regret & remorse afterward)
 - Of you walk in the flesh, your mind will be set on the flesh -> will only care to pursue those fleshly desires & nothing bigger -> always worried about sin, never satisfied w/ what is insufficient (you are on a malnourished diet on a diet of sin instead of the living water)
-- You do not want to be hostle to God (you see what the does to enemies)
+- You do not want to be hostile to God (you see what the does to enemies)
 	- you cannot please God
-- You cannot do good if you chose to do so w/ a flehly mind -> you will always fail b/c you are not relyin on God's stregth & clothing urself in Jesus's righteousness
+- You cannot do good if you chose to do so w/ a fleshly mind -> you will always fail b/c you are not relying on God's strength & clothing urself in Jesus's righteousness
 
 quicken = to endue with life
 
 "You do not have to live in the death of sin. God can quicken your spirit to new life:"
+
+>'If Christ is in you, though the body is dead because of sin, yet the spirit is alive because of righteousness. But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ Jesus from the dead will also give life to your mortal bodies through His Spirit who dwells in you. So then, brothers and sisters, we are under obligation, not to the flesh, to live according to the flesh—for if you are living in accord with the flesh, you are going to die; but if by the Spirit you are putting to death the deeds of the body, you will live. For all who are being led by the Spirit of God, these are sons and daughters of God.' (Romans 8:10-14)
+- God communicates to your spirit through the holy spirit
+
+(John 3:6-7) – need to be born again in the spirit to have it
+#### Let Your Spirit Speak by the Holy Spirit
+>'For the one who speaks in a tongue does not speak to people, but to God; for no one understands, but in his spirit he speaks mysteries.' (1 Corinthians 14:2)
+- Holy Spirit communicates directly to God from ur spirit
+
+>'and He who searches the hearts knows what the mind of the Spirit is, because He intercedes for the saints according to the will of God.' (Romans 8:27)
+#### Develop Fruit of Holy Spirit
+>"'But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law.' (Galatians 5:22-23)
+#### Do Not Live in Condemnation
+>'Therefore there is now no condemnation at all for those who are in Christ Jesus.' (Romans 8:1)
+
+Repent instead: I John 1:9
+### Overcoming the World
+#### Proper Attitude Toward World
+You don't belong to world: John 15:18-19
+>'I have given them Your word; and the world has hated them because they are not of the world, just as I am not of the world. I am not asking You to take them out of the world, but to keep them away from the evil one. They are not of the world, just as I am not of the world.' (John 17:14-16)
+
+You will experience (overcome-able) tribulation:
+>'These things I have spoken to you so that in Me you may have peace. In the world you have tribulation, but take courage; I have overcome the world.”' (John 16:33)
+
+Not worth gaining:
+>'For what does it benefit a person to gain the whole world, and forfeit his soul?' Mark 8:36)
+
+>'For what good does it do a person if he gains the whole world, but loses or forfeits himself?' (Luke 9:25)
+
+If you love the world, you are an enemy of God: I John 2:15-16 & James 4:4
+
+It has a temporal nature:
+>'His disciples remembered that it was written: “Z eal for Y our house will consume me .”' (John 2:17)
+
+>'and those who use the world, as though they did not make full use of it; for the present form of this world is passing away.' (1 Corinthians 7:31)
+
+>'Since all these things are to be destroyed in this way, what sort of people ought you to be in holy conduct and godliness,' (2 Peter 3:11)
+#### Recognize you are not in Bondage to it
+Ephesians 2:2-3, 13, 19; Romans 12:1-3
+
+>"'For through the grace given to me I say to everyone among you not to think more highly of himself than he ought to think; but to think so as to have sound judgment, as God has allotted to each a measure of faith.' (Romans 12:3)
+
+>'Now I say, as long as the heir is a child, he does not differ at all from a slave, although he is owner of everything, but he is under guardians and managers until the date set by the father. So we too, when we were children, were held in bondage under the elementary principles of the world. But when the fullness of the time came, God sent His Son, born of a woman, born under the Law, so that He might redeem those who were under the Law, that we might receive the adoption as sons and daughters . Because you are sons, God has sent the Spirit of His Son into our hearts, crying out, “Abba! Father!” Therefore you are no longer a slave, but a son; and if a son, then an heir through God' (Galatians 4:1-7)
+#### Guard v. it
+Don't base life of worldly rudiments/philosophies: Colossians 2:8
+
+Don't love world: I John 2:15
+
+Deny worldly lusts:
+>'instructing us to deny ungodliness and worldly desires and to live sensibly, righteously, and in a godly manner in the present age,' (Titus 2:12)
+
+Stay unstained by it:
+>'Pure and undefiled religion in the sight of our God and Father is this: to visit orphans and widows in their distress, and to keep oneself unstained by the world.' (James 1:27)
+
+Crucify world's pwr:
+>'But far be it from me to boast, except in the cross of our Lord Jesus Christ, through which the world has been crucified to me, and I to the world.' (Galatians 6:14)
+#### Recognize You Can Overcome the World
+Do not let the cares of the world destroy the work of the Word in your life:
+>'And the one sown with seed among the thorns, this is the one who hears the word, and the anxiety of the world and the deceitfulness of wealth choke the word, and it becomes unfruitful.' (Matthew 13:22)
+
+>'but the worries of the world, and the deceitfulness of wealth, and the desires for other things enter and choke the word, and it becomes unfruitful.' (Mark 4:19)
+
+You can escape corruption of world: II Peter 1:4
+
+Overcome world by new birth & faith: I John 5:4
+& by blood of Jesus & your testimony: Revelation 12:11
+#### Understand your Mission in World
+You are not to be affected by the world, but you are to affect the world
+Be a light in the darkness: reflect glory of God & share the good news
+- why bible says hearing good news makes hearts glad (saves ppl) but hearin bad news makes it sick (person heard that they are condemened to hell after it is too late to repent)
+
+>'“You are the light of the world. A city set on a hill cannot be hidden;' (Matthew 5:14)
+- Our light cannot be snuffed out by others
+	- Don't worry, evil plans cannot dapen you effectiveness in changing the world
+
+Impact of the early believers was so great that it was said of them that:
+>'And when they could not find them, they dragged Jason and some of the brothers before the city authorities, shouting, “==These men who have turned the world upside down have come here also==,' (Acts 17:6 ESV)
+
+Instructions:
+>'And He said to them, “Go into all the world and preach the gospel to all creation.' (Mark 16:15)
+## Further Study
+How to maintain good Christian walk
+# Battle in the Mind
+>'For though we walk in the flesh, we do not wage battle according to the flesh,' (2 (Corinthians 10:3)
+- + v. 4-5
+
+Greek word for wiles/schemes in Pauls' warning about those of the devil in Corinth = greek word for mind
+- Satan's primary target = mind; every attack of Satan involves the mind
+
+Romans 8:6-7 – battle in mind: Satan wants to make your mind carnal (worldly, sinful, fleshly) while God wants you to be spiritually minded
+## Why Satan Attacks Mind
+Greatest commandment incl. loving God w/ all ur mind:
+>'And He said to him, “‘You shall love the Lord your God with all your heart, and with all your soul, and with all your mind.’' (Matthew 22:37)
+
+Spiritually tied to heart & mouth:
+>'But ==the things that come out of the mouth come from the heart==, and ==those things defile the person==. ==For out of the heart come evil thoughts==, murders, acts of adultery, other immoral sexual acts, thefts, false testimonies, and slanderous statements.' (Matthew 15:18-19)
+
+Affects behavior:
+>'==For as he thinks in his heart, so is he==. “Eat and drink!” he says to you, But his heart is not with you.' (Proverbs 23:7)
+
+"Satan knows if he can control your mind, he can control your body, your actions, and, if left unchallenged, your spirit."
+## Fiery Darts from Enemy
+Ephesians 6:11-17
+
+Old testament: Hollow reeds filled with flammable material
+- Good against walled cities: shot over walls to ignite hatched roofs of houses within
+
+>'==not to be soon shaken in mind== or troubled, either by spirit or by word or by letter, as if from us, as though the day of Christ had come.' (II Thessalonians 2:2)
+
+**Def**: to shake translation in greek = to "agitate, disturb, topple, (by implied) to destroy"
+- If you can take hold of something and shake it, you have control over it
+
+Satan wants to exert control over ur mind
+## Enemy Strat
+Mind is complex -> many suble attacks
+### Question God's Authority
+>'Now the serpent was more cunning than any beast of the field which the Lord God had made. And he said to the woman, “==Has God indeed said==, ‘You shall not eat of every tree of the garden’==?==”' (Genesis 3:1)
+- "Did God really say that you could not eat of the tree of knowledge of good and evil?"
+
+Question God & His word -> doubt, unbelief, skepticism
+- faith is what saved you (+ makes you righteous) & it is the spiritual foundation -> attack it
+### Deception & Seduction
+Satan disguised as beautiful serpent when he met Eve (did not let on that he was directly against God, sometimes when u sin you think it is ok, that it is not a direct attack v. God b/c it's small or not that bad, etc.)
+
+Uses: Lies, cults, "religious spirits"
+
+Ex.
+- "You can become a god."
+- "You can know the future."
+- "~~Your future, including eternity, is predestined~~. There is nothing you can do about it."
+	- God has his elect, but my choices now will determine my reward in heaven & how well I served God (was already predetermined, but if I do not try to make that right choices now I am accepting that I was predestined to be a lukewarm Christian {false} & I will fulfill that destiny)
+- "Everyone is a child of God."
+- "There are more ways to Heaven than by Jesus."
+- "God is too good to send anyone to Hell."
+- "All God expects you to do is live a good life and do the best you can."
+	- How is this wrong? What else am I supposed to do other than my best? Is it because some Christians only stay in their own communities & never reach out for more (preaching gospel to all nations & getting out of comfort zone)
+		- Points of failure
+			- My best: work by my own standards of what is good & strength
+			- good life: what someone thinks is a good life for them does not always align with what God thinks a good life for a Christian is
+- "The Bible should not be taken literally."
+- "The Bible contains many errors."
+
+I Ti
