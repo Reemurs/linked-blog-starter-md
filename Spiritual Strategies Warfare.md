@@ -2409,4 +2409,5 @@ Cause: Negative attitude of others
 		- "As if he had said that they were so perverse that even he had been corrupted by them"
 	- Dr. Constable's expository notes:
 		- "Moses . . . looked behind his own failure and referred to the cause of his action, which was the people’s criticism of the Lord’s provision of food."
-		- Remember the sin of Moses was striking the rock instead of speaking to it so water could flow out in
+			- Answer: So he was not saying that he was punished by another's sin, but 
+		- Remember the sin of Moses was striking the rock instead of speaking to it so water could flow out in Numbers 20:2-13
