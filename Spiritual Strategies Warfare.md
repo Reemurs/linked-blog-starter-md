@@ -1460,23 +1460,15 @@ Satan's original sin was that he wanted to be like God, so his present power and
 
 God = love, Satan = hatred & destruction
 
-“Little children, make sure no one deceives you; the one who practices righteousness is righteous, just as He is righteous; the one who practices sin is of the devil; for the devil has been sinning from the beginning. The Son of God appeared for this purpose, to destroy the works of the devil. No one who has been born of God practices sin, because His seed remains in him; and he cannot sin continually, because he has been born of God. By this the children of God and the children of the devil are obvious: anyone who does not practice righteousness is not of God, nor the one who does not love his brother and sister. For this is the message which you have heard from the beginning, that we are to love one another; not as Cain, who was of the evil one and murdered his brother. And for what reason did he murder him? Because his own deeds were evil, but his brother’s were righteous. Do not be surprised, brothers and sisters, if the world hates you. We know that we have passed out of death into life, because we love the brothers and sisters. The one who does not love remains in death. Everyone who hates his brother or sister is a murderer, and you know that no murderer has eternal life remaining in him.” (1 John 3:7-15)
-
-  
+>“Little children, make sure no one deceives you; the one who practices righteousness is righteous, just as He is righteous; the one who practices sin is of the devil; for the devil has been sinning from the beginning. The Son of God appeared for this purpose, to destroy the works of the devil. No one who has been born of God practices sin, because His seed remains in him; and he cannot sin continually, because he has been born of God. By this the children of God and the children of the devil are obvious: anyone who does not practice righteousness is not of God, nor the one who does not love his brother and sister. For this is the message which you have heard from the beginning, that we are to love one another; not as Cain, who was of the evil one and murdered his brother. And for what reason did he murder him? Because his own deeds were evil, but his brother’s were righteous. Do not be surprised, brothers and sisters, if the world hates you. We know that we have passed out of death into life, because we love the brothers and sisters. The one who does not love remains in death. Everyone who hates his brother or sister is a murderer, and you know that no murderer has eternal life remaining in him.” (1 John 3:7-15)
 
 God creates life, Satan promotes death:
-
-“Therefore, since the children share in flesh and blood, He Himself likewise also partook of the same, so that through death He might destroy the one who has the power of death, that is, the devil,” (Hebrews 2:14)
-
-  
+>“Therefore, since the children share in flesh and blood, He Himself likewise also partook of the same, so that through death He might destroy the one who has the power of death, that is, the devil,” (Hebrews 2:14)
 
 Satan opposes God’s program:
 
 Denies his existence:
-
 “The fool has said in his heart, “There is no God.” They are corrupt, they have committed detestable acts; There is no one who does good. The Lord has looked down from heaven upon the sons of mankind To see if there are any who understand, Who seek God. They have all turned aside, together they are corrupt; There is no one who does good, not even one.” (Psalm 14:1-3)
-
-  
 
 Promotes lies:
 
@@ -2528,10 +2520,13 @@ How to kill the flesh:
 - you will be blameless -> no low self esteem -> no death & mourning
 - What the fleeting pleasures can't do for you, God can: provide true fulfillment (find life & peace) & satisfaction w/ no stings attached (regret & remorse afterward)
 - Of you walk in the flesh, your mind will be set on the flesh -> will only care to pursue those fleshly desires & nothing bigger -> always worried about sin, never satisfied w/ what is insufficient (you are on a malnourished diet on a diet of sin instead of the living water)
-- You do not want to be hostle to God (you see what the does to enemies)
+- You do not want to be hostile to God (you see what the does to enemies)
 	- you cannot please God
-- You cannot do good if you chose to do so w/ a flehly mind -> you will always fail b/c you are not relyin on God's stregth & clothing urself in Jesus's righteousness
+- You cannot do good if you chose to do so w/ a fleshly mind -> you will always fail b/c you are not relying on God's strength & clothing urself in Jesus's righteousness
 
 quicken = to endue with life
 
 "You do not have to live in the death of sin. God can quicken your spirit to new life:"
+
+>'If Christ is in you, though the body is dead because of sin, yet the spirit is alive because of righteousness. But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ Jesus from the dead will also give life to your mortal bodies through His Spirit who dwells in you. So then, brothers and sisters, we are under obligation, not to the flesh, to live according to the flesh—for if you are living in accord with the flesh, you are going to die; but if by the Spirit you are putting to death the deeds of the body, you will live. For all who are being led by the Spirit of God, these are sons and daughters of God.' (Romans 8:10-14)
+
