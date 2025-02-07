@@ -1310,7 +1310,7 @@ The 4 accusations of Satan & pray 4 unbelievers
 
   
 # God's Battle Plan
-“The one who practices sin is of the devil; for the devil has been sinning from the beginning. The Son of God appeared for this purpose, to destroy the works of the devil.” (1 John 3:8)
+>“The one who practices sin is of the devil; for the devil has been sinning from the beginning. The Son of God appeared for this purpose, to destroy the works of the devil.” (1 John 3:8)
 
 Strategy based upon communication with our Commander-in-Chief by prayer, fasting, and the written Word of God. When you do not understand God's purpose and plan, you may be tempted to become discouraged in the conflicts of life. This is why many Christian soldiers fail in warfare: They do not understand the divine purpose behind the battle.
 
@@ -2355,6 +2355,11 @@ Do not let the cares of the world destroy the work of the Word in your life:
 
 >'but the worries of the world, and the deceitfulness of wealth, and the desires for other things enter and choke the word, and it becomes unfruitful.' (Mark 4:19)
 
-You can escape corruption of world:
-II Peter 1:4
+You can escape corruption of world: II Peter 1:4
 
+Overcome world by new birth & faith: I John 5:4
+& by blood of Jesus & your testimony: Revelation 12:11
+#### Understand your Mission in World
+You are not to be affected by the world, but you are to affect the world
+Be a light in the darkness: reflect glory of God & share the good news
+- why bible says hearing good news makes hearts glad (saves ppl) but hearin gbad news makes it sick (person heard that they are condemened to hell after it is too late to repent)
