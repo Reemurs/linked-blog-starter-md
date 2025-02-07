@@ -2401,4 +2401,4 @@ Cause: Negative attitude of others
 	- Once the opportunity passed, the Lord will not change his mind & give you another chance, even after you weep & gnash your teeth
 		- the prayer of the wicked is an abomination to him
 		- you reap what you sow
-- Question: Why was Aaron punished for other's sin?
+- Question: Why was Moses punished for other's sin?
