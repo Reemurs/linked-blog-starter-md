@@ -2352,3 +2352,6 @@ Greatest commandment incl. loving God w/ all ur mind:
 >'And He said to him, “‘You shall love the Lord your God with all your heart, and with all your soul, and with all your mind.’' (Matthew 22:37)
 
 Spiritually tied to heart & mouth:
+>'But ==the things that come out of the mouth come from the heart==, and ==those things defile the person==. ==For out of the heart come evil thoughts==, murders, acts of adultery, other immoral sexual acts, thefts, false testimonies, and slanderous statements.' (Matthew 15:18-19)
+
+>'==For as he thinks in his heart, so is he==. “Eat and drink!” he says to you, But his heart is not with you.' (Proverbs 23:7)
