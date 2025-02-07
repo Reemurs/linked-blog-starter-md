@@ -2354,4 +2354,13 @@ Greatest commandment incl. loving God w/ all ur mind:
 Spiritually tied to heart & mouth:
 >'But ==the things that come out of the mouth come from the heart==, and ==those things defile the person==. ==For out of the heart come evil thoughts==, murders, acts of adultery, other immoral sexual acts, thefts, false testimonies, and slanderous statements.' (Matthew 15:18-19)
 
+Affects behavior:
 >'==For as he thinks in his heart, so is he==. “Eat and drink!” he says to you, But his heart is not with you.' (Proverbs 23:7)
+
+"Satan knows if he can control your mind, he can control your body, your actions, and, if left unchallenged, your spirit."
+## Fiery Darts from Enemy
+Ephesians 6:11-17
+
+Old testament: Hollow reeds filled with flammable material
+- Good against walled cities: shot over walls to ignite hatched roofs of houses within
+
