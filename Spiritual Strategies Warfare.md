@@ -114,40 +114,23 @@ King of Glory – Psalms 24:7
 Lamb of God – John 1:29
 Light of the World – John 8:12
 Lily of the Valleys – Song of Solomon 2:1
-
-Living Bread John 6:51
-
-Lord God Almighty Revelation 4:8
-
-Lord of All Acts 10:36
-
-Lord Our Righteousness Jeremiah 23:6
-
-Love 1 John 4:8
-
-Man of Sorrows Isaiah 53:3
-
-Master Matthew 23:10
-
-Messiah Daniel 9:25
-
-Most Holy Daniel 9:24
-
-Nazarene Matthew 2:23
-
-Only Wise God 1 Timothy 1:17
-
-Our Passover 1 Corinthians 5:7
-
-Physician Luke 4:23
-
-Prince of Peace Isaiah 9:6
-
-Propitiation Romans 3:25
-
-Redeemer Isaiah 59:20
-
-Resurrection John 11:25
+Living Bread – John 6:51
+Lord God Almighty – Revelation 4:8
+Lord of All Acts – 10:36
+Lord Our Righteousness – Jeremiah 23:6
+Love – 1 John 4:8
+Man of Sorrows – Isaiah 53:3
+Master – Matthew 23:10
+Messiah – Daniel 9:25
+Most Holy – Daniel 9:24
+Nazarene – Matthew 2:23
+Only Wise God – 1 Timothy 1:17
+Our Passover – 1 Corinthians 5:7
+Physician – Luke 4:23
+Prince of Peace – Isaiah 9:6
+Propitiation – Romans 3:25
+Redeemer – Isaiah 59:20
+Resurrection – John 11:25
 
 Righteous Servant Isaiah 53:11
 
