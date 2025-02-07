@@ -2388,6 +2388,11 @@ Cause: Negative attitude of others
 - Important not to be afraid or discouraged b/c you will not believe the Lord will enable you to do what he commanded you to do, so you disobey him
 - They were discouraged b/c of others & disobeyed
 	- Even when they were told the land was good & fruitful
-	- Even after the Lord showed him how powerful he was through his previous works (parting sea)
-	- Even after Lord showed how good he was to them by diligently scouting out a place where they could rest & abide in
-	- Even when he showed them the way in which they should go (pla)
+	- Even when he showed them the way in which they should go (had a plan & was prepared & made it easy to follow)
+	- Even after the Lord showed them how powerful He was (he is fully able) through His previous works (parting sea)
+		- "you saw how the Lord your God carried you, as a man carries his son"
+	- Even after Lord showed how good he was to them (he is willing to help) by diligently scouting out a place where they could rest & abide in
+	- Even after they were given words of encouragement
+		- "He will fight for you" -> they don't have to rely on their own strength, which is what they are worried about
+			- they disobeyed b/c they were scared they were going to be defeated & their kids would die
+- Regret: told the punishment & wanted to take it back by only being willing to do what the Lord commanded
