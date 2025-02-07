@@ -2402,3 +2402,6 @@ Cause: Negative attitude of others
 		- the prayer of the wicked is an abomination to him
 		- you reap what you sow
 - Question: Why was Moses punished for other's sin?
+	- Calvin's commentary [return]: he was overwhelmed by their wickedness
+		- i like this commentary so far
+		- "he rightly and appropriately complained that the cause of his sin had arisen from them"
