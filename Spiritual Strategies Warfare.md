@@ -2364,3 +2364,14 @@ Ephesians 6:11-17
 Old testament: Hollow reeds filled with flammable material
 - Good against walled cities: shot over walls to ignite hatched roofs of houses within
 
+>'==not to be soon shaken in mind== or troubled, either by spirit or by word or by letter, as if from us, as though the day of Christ had come.' (II Thessalonians 2:2)
+
+**Def**: to shake translation in greek = to "agitate, disturb, topple, (by implied) to destroy"
+- If you can take hold of something and shake it, you have control over it
+
+Satan wants to exert control over ur mind
+## Enemy Strat
+Mind is complex -> many suble attacks
+### Question God's Authority
+
+
