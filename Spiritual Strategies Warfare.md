@@ -72,71 +72,48 @@ Authority over the forces of evil: The death of Jesus not only freed mankind fro
 
 **Names of Jesus**
 The name "Jesus" means "Savior or deliverer" (Matthew 1:21). The name "Christ" means "the anointed one" (John 4:25-26).
-Advocate 1 John 2:1
-Almighty Revelation 1:8
-
-Alpha and Omega Revelation 21:6
-
-Amen Revelation 3:14
-
-Ancient of Days Daniel 7:9
-
-Author/Finisher of our Faith Hebrews 12:2
-Author of Eternal Salvation Hebrews 5:9
-Begotten of God 1 John 5:18
-Beloved Ephesians 1:6
-Branch Zechariah 3:8
-Bread of Life John 6:48
-Bright and Morning Star Revelation 22:16
-Captain of the Lord's Host 1 John 5:20
-Carpenter's Son Joshua 5:15
-Chief Cornerstone Matthew 13:55
-Chief Among Ten Thousand 1 Peter 2:6
-Christ Song of Solomon 5:10
-Counselor John 1:41
-Deliverer Isaiah 9:6
-Door Romans 11:26
-Elect John 10:9
-Emmanuel Isaiah 42:1
-Eternal Life Matthew 1:23
-
-Faithful and True Revelation 19:11
-
-Faithful Witness Revelation 1:5
-
-First Begotten Hebrews 1:6
-
-First and Last Revelation 22:13
-
-Glorious Lord Isaiah 33:21
-
-Great High Priest Hebrews 4:14
-
-Head of the Body Colossians 1:18
-
-Head over all things Ephesians 1:22
-
-Headstone Psalms 118:22
-
-Heir of all things Hebrews 1:2
-
-Holy One of Israel Isaiah 41:14
-
-Hope of Glory Colossians 1:27
-
-I Am John 8:58
-
-Image of the Invisible God Colossians 1:15
-
-Jesus Christ Our Lord Romans 1:3
-
-King of Glory Psalms 24:7
-
-Lamb of God John 1:29
-
-Light of the World John 8:12
-
-Lily of the Valleys Song of Solomon 2:1
+Advocate – 1 John 2:1
+Almighty – Revelation 1:8
+Alpha and Omega – Revelation 21:6
+Amen – Revelation 3:14
+Ancient of Days – Daniel 7:9
+Author/Finisher of our Faith – Hebrews 12:2
+Author of Eternal Salvation – Hebrews 5:9
+Begotten of God – 1 John 5:18
+Beloved – Ephesians 1:6
+Branch – Zechariah 3:8
+Bread of Life – John 6:48
+Bright and Morning Star – Revelation 22:16
+Captain of the Lord's Host – 1 John 5:20
+Carpenter's Son – Joshua 5:15
+Chief Cornerstone – Matthew 13:55
+Chief Among Ten Thousand – 1 Peter 2:6
+Christ – Song of Solomon 5:10
+Counselor – John 1:41
+Deliverer – Isaiah 9:6
+Door – Romans 11:26
+Elect – John 10:9
+Emmanuel – Isaiah 42:1
+Eternal Life – Matthew 1:23
+Faithful and True – Revelation 19:11
+Faithful Witness – Revelation 1:5
+First Begotten – Hebrews 1:6
+First and Last – Revelation 22:13
+Glorious Lord – Isaiah 33:21
+Great High Priest – Hebrews 4:14
+Head of the Body – Colossians 1:18
+Head over all things –Ephesians 1:22
+Headstone – Psalms 118:22
+Heir of all things – Hebrews 1:2
+Holy One of Israel – Isaiah 41:14
+Hope of Glory – Colossians 1:27
+I Am – John 8:58
+Image of the Invisible God – Colossians 1:15
+Jesus Christ Our Lord – Romans 1:3
+King of Glory – Psalms 24:7
+Lamb of God – John 1:29
+Light of the World – John 8:12
+Lily of the Valleys – Song of Solomon 2:1
 
 Living Bread John 6:51
 
