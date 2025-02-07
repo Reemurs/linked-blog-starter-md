@@ -260,63 +260,35 @@ Likewise the Spirit also helpeth our infirmities: for we know not what we should
 
 The Holy Spirit guides your warfare. He reveals spiritual things that cannot be known naturally. The Holy Spirit speaks the will and words of God to you. He also intercedes for you as you are engaged in spiritual battles.
 
-  
-
 Holy Spirit has feelings that can be affected by man’s actions:
-
 the Bible warns that we should not lie to the Holy Spirit (Acts 5:3-4), resist the Spirit (Acts 7:51), quench the Spirit (I Thessalonians 5:19), grieve the Spirit (Psalms 78:40 and Ephesians 4:30), insult the Spirit (Hebrews 6:4-6), blaspheme the Spirit (Matthew 12:31-32), or vex the Spirit (Isaiah 63:10).
 
-  
-
 **Names**
-
-The Spirit of God: I Corinthians 3:16
-
-The Spirit of Christ: Romans 8:9
-
-The Eternal Spirit: Hebrews 9:14
-
-The Spirit of Truth: John 16:13
-
-The Spirit of Grace: Hebrews 10:29
-
-The Spirit of Life: Romans 8:2
-
-The Spirit of Glory: I Peter 4:14
-
-The Spirit of Wisdom and Revelation: Ephesians 1:17
-
-The Comforter: John 14:26
-
-The Spirit of Promise: Acts 1:4-5
-
-The Spirit of Holiness: Romans 1:4
-
-The Spirit of Faith: II Corinthians 4:13
-
-The Spirit of Adoption: Romans 8:15
+- The Spirit of God: I Corinthians 3:16
+- The Spirit of Christ: Romans 8:9
+- The Eternal Spirit: Hebrews 9:14
+- The Spirit of Truth: John 16:13
+- The Spirit of Grace: Hebrews 10:29
+- The Spirit of Life: Romans 8:2
+- The Spirit of Glory: I Peter 4:14
+- The Spirit of Wisdom and Revelation: Ephesians 1:17
+- The Comforter: John 14:26
+- The Spirit of Promise: Acts 1:4-5
+- The Spirit of Holiness: Romans 1:4
+- The Spirit of Faith: II Corinthians 4:13
+- The Spirit of Adoption: Romans 8:15
 
 **Symbols**
+- The dove: John 1:32, Song Of Solomon 6:9
+- Oil: Luke 4:18, Acts 10:38; Hebrews 1:9
+- Water: John 7:37-39; Isaiah 44:3
+- A seal: Ephesians 1:13; 4:30; II Corinthians 1:22
+- Wind: John 3:8; Acts 2:1-2
+- Fire: Exodus 3:2; 13:21; Leviticus 9:24; Acts 2:3
 
-The dove: John 1:32, Song Of Solomon 6:9
-
-Oil: Luke 4:18, Acts 10:38; Hebrews 1:9
-
-Water: John 7:37-39; Isaiah 44:3
-
-A seal: Ephesians 1:13; 4:30; II Corinthians 1:22
-
-Wind: John 3:8; Acts 2:1-2
-
-Fire: Exodus 3:2; 13:21; Leviticus 9:24; Acts 2:3
-
-  
-
-Thou believest that there is one God; thou doest well: the devils also believe and tremble. (James 2:19)
+>Thou believest that there is one God; thou doest well: the devils also believe and tremble. (James 2:19 KJV)
 
 The spiritual forces of evil believe in God and are fearful of Him, but they are still evil. To simply believe in God is not enough. You must acknowledge Him as Lord of your life. You must accept the sacrifice of Jesus Christ for your sin, repent, ask forgiveness, and become a new creature in Christ.
-
-  
 # Angels
 
 The angel of the Lord encampeth round about them that fear Him, and delivereth them. (Psalms 34:7)
@@ -2471,3 +2443,10 @@ Ephesians 2:2-3, 13, 19; Romans 12:1-3
 
 >'Now I say, as long as the heir is a child, he does not differ at all from a slave, although he is owner of everything, but he is under guardians and managers until the date set by the father. So we too, when we were children, were held in bondage under the elementary principles of the world. But when the fullness of the time came, God sent His Son, born of a woman, born under the Law, so that He might redeem those who were under the Law, that we might receive the adoption as sons and daughters . Because you are sons, God has sent the Spirit of His Son into our hearts, crying out, “Abba! Father!” Therefore you are no longer a slave, but a son; and if a son, then an heir through God' (Galatians 4:1-7)
 #### Guard v. it
+Don't base life of worldly rudiments/philosophies: Colossians 2:8
+
+Don't love world: I John 2:15
+
+Deny worldly lusts:
+>'instructing us to deny ungodliness and worldly desires and to live sensibly, righteously, and in a godly manner in the present age,' (Titus 2:12)
+
