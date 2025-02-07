@@ -2499,6 +2499,11 @@ quicken = to endue with life
 #### Develop Fruit of Holy Spirit
 >"'But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law.' (Galatians 5:22-23)
 #### Do Not Live in Condemnation
->'Therefore there is now no condemnation at all for those who are in Christ Jesus.' (Romans 8:1
-https://www.bible.com/bible/2692/ROM.8.1
-Repent instead:
+>'Therefore there is now no condemnation at all for those who are in Christ Jesus.' (Romans 8:1)
+
+Repent instead: I John 1:9
+### Overcoming the World
+#### Proper Attitude Toward World
+You don't belong to world:
+>'I have given them Your word; and the world has hated them because they are not of the world, just as I am not of the world. I am not asking You to take them out of the world, but to keep them away from the evil one. They are not of the world, just as I am not of the world.' (John 17:14-16)
+
