@@ -304,7 +304,6 @@ Twenty-four elders (these may be angelic beings): Revelation 4 and 5 (I think th
   
 
 **Attributes**
-
 - Are spirits: “Are they not all ministering spirits, sent out to provide service for the sake of those who will inherit salvation?” (Hebrews 1:14 NASB2020)
 - Are asexual (sexless is debated, maybe not b/c be Philip but are still marriageless): Luke 20:34-36
 - Are mortal: Hebrews 2:14 (Devil will be destroyed by God & he was an angel)
@@ -1162,22 +1161,14 @@ Lusting after evil things pleases your fleshly nature. Please God, not an evil f
   
 
 How it develops:
-
 Lust/sinful desire 1st enters through natural senses. The eye sees something evil or the ear hears something wicked. A touch, a taste, or even a smell can even foster lust. This is how Satan uses the environment of the world to tempt the flesh. The senses trigger an evil thought/desire in the mind. That lustful thought is what tempts you to do evil.
 
-  
+>“No one is to say when he is tempted, “I am being tempted by God”; for God cannot be tempted by evil, and He Himself does not tempt anyone. But each one is tempted when he is carried away and enticed by his own lust.” (James 1:13-14)
 
-“No one is to say when he is tempted, “I am being tempted by God”; for God cannot be tempted by evil, and He Himself does not tempt anyone. But each one is tempted when he is carried away and enticed by his own lust.” (James 1:13-14)
-
-  
-
-“No temptation has overtaken you except something common to mankind; and God is faithful, so He will not allow you to be tempted beyond what you are able, but with the temptation will provide the way of escape also, so that you will be able to endure it.” (1 Corinthians 10:13)
-
-  
+>“No temptation has overtaken you except something common to mankind; and God is faithful, so He will not allow you to be tempted beyond what you are able, but with the temptation will provide the way of escape also, so that you will be able to endure it.” (1 Corinthians 10:13)
 
 Since the mind is used to tempt the flesh, Paul warns:
-
-“For the mind set on the flesh is death, but the mind set on the Spirit is life and peace, because the mind set on the flesh is hostile toward God; for it does not subject itself to the law of God, for it is not even able to do so, and those who are in the flesh cannot please God.” (Romans 8:6-8)
+>“For the mind set on the flesh is death, but the mind set on the Spirit is life and peace, because the mind set on the flesh is hostile toward God; for it does not subject itself to the law of God, for it is not even able to do so, and those who are in the flesh cannot please God.” (Romans 8:6-8)
 
 Results:
 If you yield to lust, temptation results and if you yield to temptation, it results in sin which leads to death.
@@ -2378,3 +2369,11 @@ How to maintain good Christian walk
 # Battle in the Mind
 >'For though we walk in the flesh, we do not wage battle according to the flesh,' (2 (Corinthians 10:3)
 - + v. 4-5
+
+Greek word for wiles/schemes in Pauls' warning about those of the devil in Corinth = greek word for mind
+- Satan's primary target = mind; every attack of Satan involves the mind
+
+Romans 8:6-7 – battle in mind: Satan wants to make your mind carnal (worldly, sinful, fleshly) while God wants you to be spiritually minded
+## Why Satan Attacks Mind
+
+
