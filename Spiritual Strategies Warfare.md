@@ -1179,39 +1179,23 @@ Since the mind is used to tempt the flesh, Paul warns:
 
 “For the mind set on the flesh is death, but the mind set on the Spirit is life and peace, because the mind set on the flesh is hostile toward God; for it does not subject itself to the law of God, for it is not even able to do so, and those who are in the flesh cannot please God.” (Romans 8:6-8)
 
-  
-
 Results:
-
 If you yield to lust, temptation results and if you yield to temptation, it results in sin which leads to death.
-
-“Then when lust has conceived, it gives birth to sin; and sin, when it has run its course, brings forth death.” (James 1:15)
-
-  
+>“Then when lust has conceived, it gives birth to sin; and sin, when it has run its course, brings forth death.” (James 1:15)
 
 Made the world corrupt:
-
-“Through these He has granted to us His precious and magnificent promises, so that by them you may become partakers of the divine nature, having escaped the corruption that is in the world on account of lust.” (2 Peter 1:4)
-
-  
+>“Through these He has granted to us His precious and magnificent promises, so that by them you may become partakers of the divine nature, having escaped the corruption that is in the world on account of lust.” (2 Peter 1:4)
 
 Made flesh corrupt:
-
-“that, in reference to your former way of life, you are to rid yourselves of the old self, which is being corrupted in accordance with the lusts of deceit,” (Ephesians 4:22)
-
-  
+>“that, in reference to your former way of life, you are to rid yourselves of the old self, which is being corrupted in accordance with the lusts of deceit,” (Ephesians 4:22)
 
 Spirit & Flesh Relationship:
+>“For the desire of the flesh is against the Spirit, and the Spirit against the flesh; for these are in opposition to one another, in order to keep you from doing whatever you want.” (Galatians 5:17)
 
-“For the desire of the flesh is against the Spirit, and the Spirit against the flesh; for these are in opposition to one another, in order to keep you from doing whatever you want.” (Galatians 5:17)
-
-  
-
-“I find then the principle that evil is present in me, the one who wants to do good. For I joyfully agree with the law of God in the inner person, but I see a different law in the parts of my body waging war against the law of my mind, and making me a prisoner of the law of sin, the law which is in my body’s parts.” (Romans 7:21-23)
+>“I find then the principle that evil is present in me, the one who wants to do good. For I joyfully agree with the law of God in the inner person, but I see a different law in the parts of my body waging war against the law of my mind, and making me a prisoner of the law of sin, the law which is in my body’s parts.” (Romans 7:21-23)
 
 The lusts of the flesh, if not conquered, lead to sinful **works of the flesh** which result in spiritual death:
-
-“Now the deeds of the flesh are evident, which are: sexual immorality, impurity, indecent behavior, idolatry, witchcraft, hostilities, strife, jealousy, outbursts of anger, selfish ambition, dissensions, factions, envy, drunkenness, carousing, and things like these, of which I forewarn you, just as I have forewarned you, that those who practice such things will not inherit the kingdom of God.” (Galatians 5:19-21)
+>“Now the deeds of the flesh are evident, which are: sexual immorality, impurity, indecent behavior, idolatry, witchcraft, hostilities, strife, jealousy, outbursts of anger, selfish ambition, dissensions, factions, envy, drunkenness, carousing, and things like these, of which I forewarn you, just as I have forewarned you, that those who practice such things will not inherit the kingdom of God.” (Galatians 5:19-21)
 
   
 
@@ -2366,4 +2350,11 @@ Stay unstained by it:
 Crucify world's pwr:
 >'But far be it from me to boast, except in the cross of our Lord Jesus Christ, through which the world has been crucified to me, and I to the world.' (Galatians 6:14)
 #### Recognize You Can Overcome the World
+Do not let the cares of the world destroy the work of the Word in your life:
 >'And the one sown with seed among the thorns, this is the one who hears the word, and the anxiety of the world and the deceitfulness of wealth choke the word, and it becomes unfruitful.' (Matthew 13:22)
+
+>'but the worries of the world, and the deceitfulness of wealth, and the desires for other things enter and choke the word, and it becomes unfruitful.' (Mark 4:19)
+
+You can escape corruption of world:
+II Peter 1:4
+
