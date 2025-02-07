@@ -68,106 +68,89 @@ Authority over the forces of evil: The death of Jesus not only freed mankind fro
 
 ...It is Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us. (Romans 8:34)
 
-  
-
 **Names of Jesus**
 The name "Jesus" means "Savior or deliverer" (Matthew 1:21). The name "Christ" means "the anointed one" (John 4:25-26).
-Advocate – 1 John 2:1
-Almighty – Revelation 1:8
-Alpha and Omega – Revelation 21:6
-Amen – Revelation 3:14
-Ancient of Days – Daniel 7:9
-Author/Finisher of our Faith – Hebrews 12:2
-Author of Eternal Salvation – Hebrews 5:9
-Begotten of God – 1 John 5:18
-Beloved – Ephesians 1:6
-Branch – Zechariah 3:8
-Bread of Life – John 6:48
-Bright and Morning Star – Revelation 22:16
-Captain of the Lord's Host – 1 John 5:20
-Carpenter's Son – Joshua 5:15
-Chief Cornerstone – Matthew 13:55
-Chief Among Ten Thousand – 1 Peter 2:6
-Christ – Song of Solomon 5:10
-Counselor – John 1:41
-Deliverer – Isaiah 9:6
-Door – Romans 11:26
-Elect – John 10:9
-Emmanuel – Isaiah 42:1
-Eternal Life – Matthew 1:23
-Faithful and True – Revelation 19:11
-Faithful Witness – Revelation 1:5
-First Begotten – Hebrews 1:6
-First and Last – Revelation 22:13
-Glorious Lord – Isaiah 33:21
-Great High Priest – Hebrews 4:14
-Head of the Body – Colossians 1:18
-Head over all things –Ephesians 1:22
-Headstone – Psalms 118:22
-Heir of all things – Hebrews 1:2
-Holy One of Israel – Isaiah 41:14
-Hope of Glory – Colossians 1:27
-I Am – John 8:58
-Image of the Invisible God – Colossians 1:15
-Jesus Christ Our Lord – Romans 1:3
-King of Glory – Psalms 24:7
-Lamb of God – John 1:29
-Light of the World – John 8:12
-Lily of the Valleys – Song of Solomon 2:1
-Living Bread – John 6:51
-Lord God Almighty – Revelation 4:8
-Lord of All Acts – 10:36
-Lord Our Righteousness – Jeremiah 23:6
-Love – 1 John 4:8
-Man of Sorrows – Isaiah 53:3
-Master – Matthew 23:10
-Messiah – Daniel 9:25
-Most Holy – Daniel 9:24
-Nazarene – Matthew 2:23
-Only Wise God – 1 Timothy 1:17
-Our Passover – 1 Corinthians 5:7
-Physician – Luke 4:23
-Prince of Peace – Isaiah 9:6
-Propitiation – Romans 3:25
-Redeemer – Isaiah 59:20
-Resurrection – John 11:25
-Righteous Servant Isaiah 53:11
-Rock 1 Corinthians 10:4
-Root of Jesse Isaiah 11:10
-Rose of Sharon Song of Solomon 2:1
-Savior of the World 1 John 4:14
-Seed of David John 7:42
-Seed of the Woman Genesis 3:15
-Shepherd John 10:11
-Son of God Romans 1:4
-
-Son of Man Acts 7:56
-
-Son of Mary Mark 6:3
-
-Stone Matthew 21:42
-
-Sun of Righteousness Malachi 4:2
-
-Sure Foundation Isaiah 28:16
-
-Teacher John 3:2
-
-Truth John 14:6
-
-Unspeakable Gift 1 Corinthians 9:15
-
-Vine John 15:1
-
-Way John 14:6
-
-Wonderful Isaiah 9:6
-
-Word John 1:14
-
-Word of God Revelation 19:13
-
-  
+- Advocate – 1 John 2:1
+- Almighty – Revelation 1:8
+- Alpha and Omega – Revelation 21:6
+- Amen – Revelation 3:14
+- Ancient of Days – Daniel 7:9
+- Author/Finisher of our Faith – Hebrews 12:2
+- Author of Eternal Salvation – Hebrews 5:9
+- Begotten of God – 1 John 5:18
+- Beloved – Ephesians 1:6
+- Branch – Zechariah 3:8
+- Bread of Life – John 6:48
+- Bright and Morning Star – Revelation 22:16
+- Captain of the Lord's Host – 1 John 5:20
+- Carpenter's Son – Joshua 5:15
+- Chief Cornerstone – Matthew 13:55
+- Chief Among Ten Thousand – 1 Peter 2:6
+- Christ – Song of Solomon 5:10
+- Counselor – John 1:41
+- Deliverer – Isaiah 9:6
+- Door – Romans 11:26
+- Elect – John 10:9
+- Emmanuel – Isaiah 42:1
+- Eternal Life – Matthew 1:23
+- Faithful and True – Revelation 19:11
+- Faithful Witness – Revelation 1:5
+- First Begotten – Hebrews 1:6
+- First and Last – Revelation 22:13
+- Glorious Lord – Isaiah 33:21
+- Great High Priest – Hebrews 4:14
+- Head of the Body – Colossians 1:18
+- Head over all things –Ephesians 1:22
+- Headstone – Psalms 118:22
+- Heir of all things – Hebrews 1:2
+- Holy One of Israel – Isaiah 41:14
+- Hope of Glory – Colossians 1:27
+- I Am – John 8:58
+- Image of the Invisible God – Colossians 1:15
+- Jesus Christ Our Lord – Romans 1:3
+- King of Glory – Psalms 24:7
+- Lamb of God – John 1:29
+- Light of the World – John 8:12
+- Lily of the Valleys – Song of Solomon 2:1
+- Living Bread – John 6:51
+- Lord God Almighty – Revelation 4:8
+- Lord of All Acts – 10:36
+- Lord Our Righteousness – Jeremiah 23:6
+- Love – 1 John 4:8
+- Man of Sorrows – Isaiah 53:3
+- Master – Matthew 23:10
+- Messiah – Daniel 9:25
+- Most Holy – Daniel 9:24
+- Nazarene – Matthew 2:23
+- Only Wise God – 1 Timothy 1:17
+- Our Passover – 1 Corinthians 5:7
+- Physician – Luke 4:23
+- Prince of Peace – Isaiah 9:6
+- Propitiation – Romans 3:25
+- Redeemer – Isaiah 59:20
+- Resurrection – John 11:25
+- Righteous Servant – Isaiah 53:11
+- Rock – 1 Corinthians 10:4
+- Root of Jesse – Isaiah 11:10
+- Rose of Sharon – Song of Solomon 2:1
+- Savior of the World – 1 John 4:14
+- Seed of David – John 7:42
+- Seed of the Woman – Genesis 3:15
+- Shepherd – John 10:11
+- Son of God – Romans 1:4
+- Son of Man – Acts 7:56
+- Son of Mary – Mark 6:3
+- Stone – Matthew 21:42
+- Sun of Righteousness – Malachi 4:2
+- Sure Foundation – Isaiah 28:16
+- Teacher – John 3:2
+- Truth – John 14:6
+- Unspeakable Gift – 1 Corinthians 9:15
+- Vine – John 15:1
+- Way – John 14:6
+- Wonderful – Isaiah 9:6
+- Word – John 1:14
+- Word of God – Revelation 19:13
 
 **Holy Spirit**
 
@@ -467,14 +450,10 @@ Read Psalms 78:36,40 and Ecclesiastes 5:6. Israel had a special angel caring for
 
   
 # Satan
-
-“Be of sober spirit, be on the alert. Your adversary, the devil, prowls around like a roaring lion, seeking someone to devour.” (1 Peter 5:8)
-
-  
+>“Be of sober spirit, be on the alert. Your adversary, the devil, prowls around like a roaring lion, seeking someone to devour.” (1 Peter 5:8)
 
 **God Created Evil**
-
-“The One forming light and creating darkness, Causing well-being and creating disaster; I am the Lord who does all these things.” (Isaiah 45:7)
+>“The One forming light and creating darkness, Causing well-being and creating disaster; I am the Lord who does all these things.” (Isaiah 45:7)
 
 Did God create evil? Just like how darkness is the absence of light, evil is the absence of good. However God still created darkness, so he created evil. He created free will, so he created evil. This is because a person can choose to do good or bad. Why did God create evil? God knows that there has to be a counterparts for us not to function as robots. Why do we have to suffer to be strong? It makes the highs better. God knows the mysteries, don’t question him. He knows the evil plans, so he is in control of everything and you can trust him to guide you and protect you. He created evil by free will, but that does not mean that he is evil. He just made the balance of the world (or some other reason humans do not know of). God creates disasters to punish and to build.
 
@@ -2387,3 +2366,4 @@ Stay unstained by it:
 Crucify world's pwr:
 >'But far be it from me to boast, except in the cross of our Lord Jesus Christ, through which the world has been crucified to me, and I to the world.' (Galatians 6:14)
 #### Recognize You Can Overcome the World
+>'And the one sown with seed among the thorns, this is the one who hears the word, and the anxiety of the world and the deceitfulness of wealth choke the word, and it becomes unfruitful.' (Matthew 13:22)
