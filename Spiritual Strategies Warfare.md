@@ -131,23 +131,14 @@ Prince of Peace – Isaiah 9:6
 Propitiation – Romans 3:25
 Redeemer – Isaiah 59:20
 Resurrection – John 11:25
-
 Righteous Servant Isaiah 53:11
-
 Rock 1 Corinthians 10:4
-
 Root of Jesse Isaiah 11:10
-
 Rose of Sharon Song of Solomon 2:1
-
 Savior of the World 1 John 4:14
-
 Seed of David John 7:42
-
 Seed of the Woman Genesis 3:15
-
 Shepherd John 10:11
-
 Son of God Romans 1:4
 
 Son of Man Acts 7:56
