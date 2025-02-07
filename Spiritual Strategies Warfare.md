@@ -654,8 +654,6 @@ You can recognize the power of Satan from his attributes and names. Because he i
 
 Not Omniscient (knowing all things): Would not have killed Jesus if he knew what would happen
 
-  
-
 Not Omnipotent (all powerful): Jesus said the power of God within you is greater than the power of Satan. For those who believe in Jesus, Satan is already a defeated foe (John 12:31). He is strong only to those who yield to him. His power is limited by the power of God (Job 1:10-12) and he is only able to overcome a believer as they yield control to him.
 
 Not omnipresent (present everywhere): he dispatches a host of demons throughout the earth to do his will and accomplish his purposes
@@ -2375,3 +2373,8 @@ Ex.
 
 Seducing spirits of Satan attack the mind to distort the truth of God's Word: I Timothy 4:1
 
+ex. Satan used this attack on Jesus:
+>'Then he brought Him to Jerusalem, set Him on the pinnacle of the temple, and said to Him, “If You are the Son of God, throw Yourself down from here. For it is written: ‘He shall give His angels charge over you, To keep you,’ and, ‘In their hands they shall bear you up, Lest you dash your foot against a stone.’ ” And Jesus answered and said to him, “It has been said, ‘You shall not tempt the Lord your God.’”'
+
+Luke 4:9-12
+https://www.bible.com/bible/114/LUK.4.9-12
