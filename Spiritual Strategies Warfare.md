@@ -1001,16 +1001,16 @@ Ref of what demons do & how God uses them to defeat themselves
 
 **Prince of this world**
 John 12:31
-“I will not speak much more with you, for the ruler of the world is coming, and he has nothing in regard to Me, but so that the world may know that I love the Father, I do exactly as the Father commanded Me. Get up, let’s go from here.” (John 14:30-31)
+>“I will not speak much more with you, for the ruler of the world is coming, and he has nothing in regard to Me, but so that the world may know that I love the Father, I do exactly as the Father commanded Me. Get up, let’s go from here.” (John 14:30-31)
 
 **God of this world:**
-“in whose case the god of this world has blinded the minds of the unbelieving so that they will not see the light of the gospel of the glory of Christ, who is the image of God.” (2 Corinthians 4:4)
+>“in whose case the god of this world has blinded the minds of the unbelieving so that they will not see the light of the gospel of the glory of Christ, who is the image of God.” (2 Corinthians 4:4)
 
 Kingdoms of world guided by Satanic philosophy and principles:
-“Again, the devil \*took Him along to a very high mountain and \*showed Him all the kingdoms of the world and their glory; and he said to Him, “All these things I will give You, if You fall down and worship me.”” (Matthew 4:8-9)
+>“Again, the devil \*took Him along to a very high mountain and \*showed Him all the kingdoms of the world and their glory; and he said to Him, “All these things I will give You, if You fall down and worship me.”” (Matthew 4:8-9)
 
 They will be God’s kingdoms soon:
-“Then the seventh angel sounded; and there were loud voices in heaven, saying, “The kingdom of the world has become the kingdom of our Lord and of His Christ; and He will reign forever and ever.”” (Revelation 11:15)
+>“Then the seventh angel sounded; and there were loud voices in heaven, saying, “The kingdom of the world has become the kingdom of our Lord and of His Christ; and He will reign forever and ever.”” (Revelation 11:15)
 
 **Start of Sin**
 Adam & Eve had dominion over the world: control, guide its systems & inhabitants according to God’s will. Lost dominion when they sinned.
@@ -2353,7 +2353,7 @@ Question God & His word -> doubt, unbelief, skepticism
 ### Deception & Seduction
 Satan disguised as beautiful serpent when he met Eve (did not let on that he was directly against God, sometimes when u sin you think it is ok, that it is not a direct attack v. God b/c it's small or not that bad, etc.)
 
-Uses: Lies, cults, "religious spirits"
+Uses: Lies, cults, "religious spirits," twists scripture
 
 Ex.
 - "You can become a god."
@@ -2374,7 +2374,10 @@ Ex.
 Seducing spirits of Satan attack the mind to distort the truth of God's Word: I Timothy 4:1
 
 ex. Satan used this attack on Jesus:
->'Then he brought Him to Jerusalem, set Him on the pinnacle of the temple, and said to Him, “If You are the Son of God, throw Yourself down from here. For it is written: ‘He shall give His angels charge over you, To keep you,’ and, ‘In their hands they shall bear you up, Lest you dash your foot against a stone.’ ” And Jesus answered and said to him, “It has been said, ‘You shall not tempt the Lord your God.’”'
-
-Luke 4:9-12
-https://www.bible.com/bible/114/LUK.4.9-12
+>'Then he brought Him to Jerusalem, set Him on the pinnacle of the temple, and said to Him, “==If You are the Son of God, throw Yourself down from here. For it is written:== ‘He shall give His angels charge over you, To keep you,’ and, ‘In their hands they shall bear you up, Lest you dash your foot against a stone.’ ” And Jesus answered and said to him, “It has been said, ‘You shall not tempt the Lord your God.’”' (Luke 4:9-12)
+### The Flesh
+Romans 7:23
+"Satan uses your own mouth, your eyes, ears, and even your senses of touch and smell to foster wicked thoughts in your mind."
+### Blinds Minds of Unbelievers
+2 Corinthians 4:4
+### Depression
