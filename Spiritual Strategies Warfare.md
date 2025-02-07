@@ -2402,6 +2402,11 @@ Cause: Negative attitude of others
 		- the prayer of the wicked is an abomination to him
 		- you reap what you sow
 - Question: Why was Moses punished for other's sin?
+	- Commentaries: https://www.studylight.org/commentary/deuteronomy/1-37.html [return]
 	- Calvin's commentary [return]: he was overwhelmed by their wickedness
 		- i like this commentary so far
 		- "he rightly and appropriately complained that the cause of his sin had arisen from them"
+		- "As if he had said that they were so perverse that even he had been corrupted by them"
+	- Dr. Constable's expository notes:
+		- "Moses . . . looked behind his own failure and referred to the cause of his action, which was the people’s criticism of the Lord’s provision of food."
+		- Remember the sin of Moses was striking the rock instead of speaking to it so water could flow out in
