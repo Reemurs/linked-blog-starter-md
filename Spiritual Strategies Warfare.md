@@ -2395,4 +2395,10 @@ Cause: Negative attitude of others
 	- Even after they were given words of encouragement
 		- "He will fight for you" -> they don't have to rely on their own strength, which is what they are worried about
 			- they disobeyed b/c they were scared they were going to be defeated & their kids would die
-- Regret: told the punishment & wanted to take it back by only being willing to do what the Lord commanded
+- Regret: wanted to take it back by only being willing to do what the Lord commanded once they experienced the consequences
+	- they did not use the Lord's timing -> missed their chance
+	- You do not want to miss out on the amazing opportunities God has for you, so obey him, even when when things seem daunting b/c he has made a way for you
+	- Once the opportunity passed, the Lord will not change his mind & give you another chance, even after you weep & gnash your teeth
+		- the prayer of the wicked is an abomination to him
+		- you reap what you sow
+- Question: Why was Aaron punished for other's sin?
