@@ -2501,3 +2501,5 @@ If you love the world, you are an enemy of God: I John 2:15-16 & James 4:4
 
 It has a temporal nature:
 >'His disciples remembered that it was written: “Z eal for Y our house will consume me .”' (John 2:17)
+
+>
