@@ -2375,4 +2375,6 @@ Instructions:
 >'And He said to them, “Go into all the world and preach the gospel to all creation.' (Mark 16:15)
 ## Further Study
 How to maintain good Christian walk
-# Yeet
+# Battle in the Mind
+>'For though we walk in the flesh, we do not wage battle according to the flesh,' (2 (Corinthians 10:3)
+- + v. 4-5
