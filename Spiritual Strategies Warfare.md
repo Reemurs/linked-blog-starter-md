@@ -2362,4 +2362,10 @@ Overcome world by new birth & faith: I John 5:4
 #### Understand your Mission in World
 You are not to be affected by the world, but you are to affect the world
 Be a light in the darkness: reflect glory of God & share the good news
-- why bible says hearing good news makes hearts glad (saves ppl) but hearin gbad news makes it sick (person heard that they are condemened to hell after it is too late to repent)
+- why bible says hearing good news makes hearts glad (saves ppl) but hearin bad news makes it sick (person heard that they are condemened to hell after it is too late to repent)
+
+>'“You are the light of the world. A city set on a hill cannot be hidden;' (Matthew 5:14)
+- Our light cannot be snuffed out by others
+	- Don't worry, evil plans cannot dapen you effectiveness in changing the world
+
+>'And when they could not find them, they dragged Jason and some of the brothers before the city authorities, shouting, “These men who have turned the world upside down have come here also,' (Acts 17:6 ESV)
