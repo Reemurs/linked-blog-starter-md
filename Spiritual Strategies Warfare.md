@@ -245,63 +245,36 @@ In Revelation 4:6? Guardians of God/highest order of angels?
 
 Have (human?) hands & lead worship of God in heaven?
 
-  
-
 **Living Creatures**
+>“and before the throne there was something like a sea of glass, like crystal; and in the center and around the throne, four living creatures full of eyes in front and behind. The first living creature was like a lion, the second creature like a calf, the third creature had a face like that of a man, and the fourth creature was like a flying eagle. And the four living creatures, each one of them having six wings, are full of eyes around and within; and day and night they do not cease to say, “Holy, holy, holy is the Lord God, the Almighty, who was and who is and who is to come.” And when the living creatures give glory, honor, and thanks to Him who sits on the throne, to Him who lives forever and ever, the twenty-four elders will fall down before Him who sits on the throne, and they will worship Him who lives forever and ever, and will cast their crowns before the throne, saying, “Worthy are You, our Lord and our God, to receive glory and honor and power; for You created all things, and because of Your will they existed, and were created.”” (Revelation 4:6-11)
 
-“and before the throne there was something like a sea of glass, like crystal; and in the center and around the throne, four living creatures full of eyes in front and behind. The first living creature was like a lion, the second creature like a calf, the third creature had a face like that of a man, and the fourth creature was like a flying eagle. And the four living creatures, each one of them having six wings, are full of eyes around and within; and day and night they do not cease to say, “Holy, holy, holy is the Lord God, the Almighty, who was and who is and who is to come.” And when the living creatures give glory, honor, and thanks to Him who sits on the throne, to Him who lives forever and ever, the twenty-four elders will fall down before Him who sits on the throne, and they will worship Him who lives forever and ever, and will cast their crowns before the throne, saying, “Worthy are You, our Lord and our God, to receive glory and honor and power; for You created all things, and because of Your will they existed, and were created.”” (Revelation 4:6-11 NASB2020)
-
-  
-
-“And I saw between the throne (with the four living creatures) and the elders a Lamb standing, as if slaughtered, having seven horns and seven eyes, which are the seven spirits of God sent out into all the earth. And He came and took the scroll out of the right hand of Him who sat on the throne. When He had taken the scroll, the four living creatures and the twenty-four elders fell down before the Lamb, each one holding a harp and golden bowls full of incense, which are the prayers of the saints. And they *sang a new song, saying, “Worthy are You to take the scroll and to break its seals; for You were slaughtered, and You purchased people for God with Your blood from every tribe, language, people, and nation. You have made them into a kingdom and priests to our God, and they will reign upon the earth.”” (Revelation 5:6-10 NASB2020)
+>“And I saw between the throne (with the four living creatures) and the elders a Lamb standing, as if slaughtered, having seven horns and seven eyes, which are the seven spirits of God sent out into all the earth. And He came and took the scroll out of the right hand of Him who sat on the throne. When He had taken the scroll, the four living creatures and the twenty-four elders fell down before the Lamb, each one holding a harp and golden bowls full of incense, which are the prayers of the saints. And they \*sang a new song, saying, “Worthy are You to take the scroll and to break its seals; for You were slaughtered, and You purchased people for God with Your blood from every tribe, language, people, and nation. You have made them into a kingdom and priests to our God, and they will reign upon the earth.”” (Revelation 5:6-10)
 
 Manifest fullness of divine life & chief ministry = worship God?
 
-  
-
 **Michael**
+Only Archangel mentioned – Daniel 10:21; 12:1; Jude 9
 
-Only Archangel mentioned
+>“And there was war in heaven, Michael and his angels waging war with the dragon. The dragon and his angels waged war,” (Revelation 12:7)
 
-Daniel 10:13,21; 12:1; Jude 9; Revelation 12:7
-
-“And there was war in heaven, Michael and his angels waging war with the dragon. The dragon and his angels waged war,”
-
-(Revelation 12:7 NASB2020)
-
-Has charge over an angel army
-
-  
-
-“But the prince of the kingdom of Persia was standing in my way for twenty-one days; then behold, Michael, one of the chief princes, came to help me, for I had been left there with the kings of Persia.” (Daniel 10:13 NASB2020)
+Has charge over an angel army:
+>“But the prince of the kingdom of Persia was standing in my way for twenty-one days; then behold, Michael, one of the chief princes, came to help me, for I had been left there with the kings of Persia.” (Daniel 10:13 NASB2020)
 
 A Prince of Israel
 
-  
-
 **Gabriel**
-
 Name meaning = mighty man of God
 
-Daniel 8:16; 9:21; interpreted vision 4 Daniel 
+Daniel 8:16; 9:21 – interpreted vision 4 Daniel 
 
-Luke 1:19,26 Announced birth of John & Jesus
-
-  
+Luke 1:19, 26 – Announced birth of John & Jesus
 
 **Special Groups**
-
-Angels of the seven churches: Revelation 1:20
-
-Four angels who control the winds:  Revelation 1:7
-
-Seven angels who stand before God: Revelation 8:2
-
-Seven angels who administrate the seven last plagues: Revelation 15:1,7
-
-Twenty-four elders (these may be angelic beings): Revelation 4 and 5 (I think they are ppl)
-
-  
+- Angels of the seven churches: Revelation 1:20
+- Four angels who control the winds:  Revelation 1:7
+- Seven angels who stand before God: Revelation 8:2
+- Seven angels who administrate the seven last plagues: Revelation 15:17
+- Twenty-four elders (these may be angelic beings): Revelation 4 and 5 (I think they are ppl)
 
 **Attributes**
 - Are spirits: “Are they not all ministering spirits, sent out to provide service for the sake of those who will inherit salvation?” (Hebrews 1:14 NASB2020)
@@ -2375,5 +2348,7 @@ Greek word for wiles/schemes in Pauls' warning about those of the devil in Corin
 
 Romans 8:6-7 – battle in mind: Satan wants to make your mind carnal (worldly, sinful, fleshly) while God wants you to be spiritually minded
 ## Why Satan Attacks Mind
+Greatest commandment incl. loving God w/ all ur mind:
+>'And He said to him, “‘You shall love the Lord your God with all your heart, and with all your soul, and with all your mind.’' (Matthew 22:37)
 
-
+Spiritually tied to heart & mouth:
