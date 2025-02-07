@@ -2368,4 +2368,11 @@ Be a light in the darkness: reflect glory of God & share the good news
 - Our light cannot be snuffed out by others
 	- Don't worry, evil plans cannot dapen you effectiveness in changing the world
 
->'And when they could not find them, they dragged Jason and some of the brothers before the city authorities, shouting, “These men who have turned the world upside down have come here also,' (Acts 17:6 ESV)
+Impact of the early believers was so great that it was said of them that:
+>'And when they could not find them, they dragged Jason and some of the brothers before the city authorities, shouting, “==These men who have turned the world upside down have come here also==,' (Acts 17:6 ESV)
+
+Instructions:
+>'And He said to them, “Go into all the world and preach the gospel to all creation.' (Mark 16:15)
+## Further Study
+How to maintain good Christian walk
+# Yeet
