@@ -2535,3 +2535,4 @@ quicken = to endue with life
 >'For the one who speaks in a tongue does not speak to people, but to God; for no one understands, but in his spirit he speaks mysteries.' (1 Corinthians 14:2)
 - Holy Spirit communicates directly to God from ur spirit
 
+>'Now in the same way the Spirit also helps our weakness; for we do not know what to pray for as we should, but the Spirit Himself intercedes for us with groanings too deep for words; and He who searches the hearts knows what the mind of the Spirit is, because He intercedes for the saints according to the will of God.' (Romans 8:26-27)
