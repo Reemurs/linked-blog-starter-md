@@ -1286,43 +1286,25 @@ Temporary, fragile, deceptive:
   
 
 **Attitude of World**
-
 Hates God:
-
-“You adulteresses, do you not know that friendship with the world is hostility toward God? Therefore whoever wants to be a friend of the world makes himself an enemy of God.” (James 4:4)
-
-  
+>“You adulteresses, do you not know that friendship with the world is hostility toward God? Therefore whoever wants to be a friend of the world makes himself an enemy of God.” (James 4:4)
 
 Hates believers:
-
-““If the world hates you, you know that it has hated Me before it hated you. If you were of the world, the world would love you as its own; but because you are not of the world, but I chose you out of the world, because of this the world hates you.” (John 15:18-19)
-
-  
+>“If the world hates you, you know that it has hated Me before it hated you. If you were of the world, the world would love you as its own; but because you are not of the world, but I chose you out of the world, because of this the world hates you.” (John 15:18-19)
 
 **Flesh**
-
 1. Compulsive inner force which expresses itself in rebellion through sin
 2. Body of man/beast
 
-  
-
-“For I know that good does not dwell in me, that is, in my flesh; for the willing is present in me, but the doing of the good is not. For the good that I want, I do not do, but I practice the very evil that I do not want. But if I do the very thing I do not want, I am no longer the one doing it, but sin that dwells in me.” (Romans 7:18-20)
-
-  
+>“For I know that good does not dwell in me, that is, in my flesh; for the willing is present in me, but the doing of the good is not. For the good that I want, I do not do, but I practice the very evil that I do not want. But if I do the very thing I do not want, I am no longer the one doing it, but sin that dwells in me.” (Romans 7:18-20)
 
 Everyone has it:
+>“Therefore, just as through one man sin entered into the world, and death through sin, and so death spread to all mankind, because all sinned—” (Romans 5:12)
 
-“Therefore, just as through one man sin entered into the world, and death through sin, and so death spread to all mankind, because all sinned—” (Romans 5:12)
-
-  
-
-“for all have sinned and fall short of the glory of God,” (Romans 3:23)
-
-  
+>“for all have sinned and fall short of the glory of God,” (Romans 3:23)
 
 **Lust of the Flesh**
-
-“But I say, walk by the Spirit, and you will not carry out the desire of the flesh.” (Galatians 5:16)
+>“But I say, walk by the Spirit, and you will not carry out the desire of the flesh.” (Galatians 5:16)
 
   
 
@@ -2504,6 +2486,8 @@ quicken = to endue with life
 Repent instead: I John 1:9
 ### Overcoming the World
 #### Proper Attitude Toward World
-You don't belong to world:
+You don't belong to world: John 15:18-19
 >'I have given them Your word; and the world has hated them because they are not of the world, just as I am not of the world. I am not asking You to take them out of the world, but to keep them away from the evil one. They are not of the world, just as I am not of the world.' (John 17:14-16)
 
+You will experience (overcome-able) tribulation:
+>'These things I have spoken to you so that in Me you may have peace. In the world you have tribulation, but take courage; I have overcome the world.”' (John 16:33)
