@@ -71,11 +71,8 @@ Authority over the forces of evil: The death of Jesus not only freed mankind fro
   
 
 **Names of Jesus**
-
-The name "Jesus" means "Savior or deliverer" (Matthew 1:21). The name "Christ" means "the anointed one" (John 4:25- 26).
-
+The name "Jesus" means "Savior or deliverer" (Matthew 1:21). The name "Christ" means "the anointed one" (John 4:25-26).
 Advocate 1 John 2:1
-
 Almighty Revelation 1:8
 
 Alpha and Omega Revelation 21:6
@@ -85,39 +82,22 @@ Amen Revelation 3:14
 Ancient of Days Daniel 7:9
 
 Author/Finisher of our Faith Hebrews 12:2
-
 Author of Eternal Salvation Hebrews 5:9
-
 Begotten of God 1 John 5:18
-
 Beloved Ephesians 1:6
-
 Branch Zechariah 3:8
-
 Bread of Life John 6:48
-
 Bright and Morning Star Revelation 22:16
-
 Captain of the Lord's Host 1 John 5:20
-
 Carpenter's Son Joshua 5:15
-
 Chief Cornerstone Matthew 13:55
-
 Chief Among Ten Thousand 1 Peter 2:6
-
 Christ Song of Solomon 5:10
-
 Counselor John 1:41
-
 Deliverer Isaiah 9:6
-
 Door Romans 11:26
-
 Elect John 10:9
-
 Emmanuel Isaiah 42:1
-
 Eternal Life Matthew 1:23
 
 Faithful and True Revelation 19:11
@@ -2450,3 +2430,9 @@ Don't love world: I John 2:15
 Deny worldly lusts:
 >'instructing us to deny ungodliness and worldly desires and to live sensibly, righteously, and in a godly manner in the present age,' (Titus 2:12)
 
+Stay unstained by it:
+>'Pure and undefiled religion in the sight of our God and Father is this: to visit orphans and widows in their distress, and to keep oneself unstained by the world.' (James 1:27)
+
+Crucify world's pwr:
+>'But far be it from me to boast, except in the cross of our Lord Jesus Christ, through which the world has been crucified to me, and I to the world.' (Galatians 6:14)
+#### Recognize You Can Overcome the World
