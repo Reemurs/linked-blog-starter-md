@@ -30,28 +30,29 @@ Rebuke can lead to repentance:
 ..If thy brother trespass against thee, rebuke him; and if he repent, forgive him. (Luke 17:3)
 
 **Names for God**
-Jehovah-Rapha: "The Lord that healeth" Exodus 15:26 (jehovah = the lord)
-Jehovah-Nissi: "The Lord our banner" Exodus 17:8-15
-Jehovah-Shalom: "The Lord our peace" Judges 6:24
-Jehovah-Ra'ah: "The Lord my shepherd" Psalms 23:1
-Jehovah-Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
-Jehovah-Jireh: "The Lord who provides" Genesis 22:14
-Jehovah-Shammah: "The Lord is there" Ezekiel 48:35
-Elohim: Means God and is used wherever the creative power of God is implied
-Adonai: Means Lord or Master: Exodus 23:17; Isaiah 10:16,33
-El Shaddai: "The God who is sufficient for the needs of His People" Exodus 6:3
-Elolam: "The everlasting God" Genesis 21:33
-El Elyon: "Most high God who is exalted above other so called gods" Genesis 14:18, 22
-Yahweh Jireh: "The Lord provides" Genesis 22:14 (Yahweh = God)
-Yahweh Nissi: "The Lord is my banner" Exodus 17:15
-Yahweh Shalom: "The Lord is peace" Judges 6:24
-Yahweh Sabbaoth: "The Lord of Hosts" I Samuel 1:3 
-Yahweh Maccaddeshcem: "The Lord thy Sanctifier" Exodus 31:13
-Yahweh Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
-Yahweh Shammah: "The Lord is there" Ezekiel 48:35
-Yahweh Elohim Israel: "The Lord God of Israel" Judges 5:3 
-Quadosh Israel: "The Holy One Of Israel" Isaiah 1:4
-The Lord Of Hosts: In the Biblical record, these different names of God were used when requesting God to move in a specific way on behalf of His people. For example, the name Jehovah-Rapham meaning "the Lord that healeth," was used when seeking healing. The specific name of God which should be used in spiritual warfare is "Yahweh Sabbaoth" which is translated "the Lord of hosts" in the King James version of the Bible. When you call upon that name in warfare, the battle is the Lord's and all the hosts of Heaven come to your aid.
+- Jehovah-Rapha: "The Lord that healeth" Exodus 15:26 (jehovah = the lord)
+	- Jehovah-Rapham; used when seeking healing; other names used when seeking _____
+- Jehovah-Nissi: "The Lord our banner" Exodus 17:8-15
+- Jehovah-Shalom: "The Lord our peace" Judges 6:24
+- Jehovah-Ra'ah: "The Lord my shepherd" Psalms 23:1
+- Jehovah-Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
+- Jehovah-Jireh: "The Lord who provides" Genesis 22:14
+- Jehovah-Shammah: "The Lord is there" Ezekiel 48:35
+- Elohim: Means God and is used wherever the creative power of God is implied
+- Adonai: Means Lord or Master: Exodus 23:17; Isaiah 10:16,33
+- El Shaddai: "The God who is sufficient for the needs of His People" Exodus 6:3
+- Elolam: "The everlasting God" Genesis 21:33
+- El Elyon: "Most high God who is exalted above other so called gods" Genesis 14:18, 22
+- Yahweh Jireh: "The Lord provides" Genesis 22:14 (Yahweh = God)
+- Yahweh Nissi: "The Lord is my banner" Exodus 17:15
+- Yahweh Shalom: "The Lord is peace" Judges 6:24
+- Yahweh Sabbaoth: "The Lord of Hosts" I Samuel 1:3 
+- Yahweh Maccaddeshcem: "The Lord thy Sanctifier" Exodus 31:13
+- Yahweh Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
+- Yahweh Shammah: "The Lord is there" Ezekiel 48:35
+- Yahweh Elohim Israel: "The Lord God of Israel" Judges 5:3 
+- Quadosh Israel: "The Holy One Of Israel" Isaiah 1:4
+- The Lord Of Hosts: specific name of God which should be used in spiritual warfare: "Yahweh Sabbaoth." When you call upon that name in warfare, the battle is the Lord's and all the hosts of Heaven come to your aid.
 
   
 
@@ -2496,3 +2497,8 @@ quicken = to endue with life
 
 >'and He who searches the hearts knows what the mind of the Spirit is, because He intercedes for the saints according to the will of God.' (Romans 8:27)
 #### Develop Fruit of Holy Spirit
+>"'But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law.' (Galatians 5:22-23)
+#### Do Not Live in Condemnation
+>'Therefore there is now no condemnation at all for those who are in Christ Jesus.' (Romans 8:1
+https://www.bible.com/bible/2692/ROM.8.1
+Repent instead:
