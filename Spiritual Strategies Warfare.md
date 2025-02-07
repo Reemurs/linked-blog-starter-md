@@ -2491,3 +2491,7 @@ You don't belong to world: John 15:18-19
 
 You will experience (overcome-able) tribulation:
 >'These things I have spoken to you so that in Me you may have peace. In the world you have tribulation, but take courage; I have overcome the world.”' (John 16:33)
+
+Not worth gaining:
+>'For what does it benefit a person to gain the whole world, and forfeit his soul?' Mark 8:36)
+
