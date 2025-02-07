@@ -2496,3 +2496,5 @@ Not worth gaining:
 >'For what does it benefit a person to gain the whole world, and forfeit his soul?' Mark 8:36)
 
 >'For what good does it do a person if he gains the whole world, but loses or forfeits himself?' (Luke 9:25)
+
+If you lvoe the world, you are an enemy of G
