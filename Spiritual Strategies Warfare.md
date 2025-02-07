@@ -1468,11 +1468,10 @@ God creates life, Satan promotes death:
 Satan opposes God’s program:
 
 Denies his existence:
-“The fool has said in his heart, “There is no God.” They are corrupt, they have committed detestable acts; There is no one who does good. The Lord has looked down from heaven upon the sons of mankind To see if there are any who understand, Who seek God. They have all turned aside, together they are corrupt; There is no one who does good, not even one.” (Psalm 14:1-3)
+>“The fool has said in his heart, “There is no God.” They are corrupt, they have committed detestable acts; There is no one who does good. The Lord has looked down from heaven upon the sons of mankind To see if there are any who understand, Who seek God. They have all turned aside, together they are corrupt; There is no one who does good, not even one.” (Psalm 14:1-3)
 
 Promotes lies:
-
-“Then that lawless one will be revealed, whom the Lord will eliminate with the breath of His mouth and bring to an end by the appearance of His coming; that is, the one whose coming is in accord with the activity of Satan, with all power and false signs and wonders, and with all the deception of wickedness for those who perish, because they did not accept the love of the truth so as to be saved. For this reason God will send upon them a deluding influence so that they will believe what is false, in order that they all may be judged who did not believe the truth, but took pleasure in wickedness.” (2 Thessalonians 2:8-12)
+>“Then that lawless one will be revealed, whom the Lord will eliminate with the breath of His mouth and bring to an end by the appearance of His coming; that is, the one whose coming is in accord with the activity of Satan, with all power and false signs and wonders, and with all the deception of wickedness for those who perish, because they did not accept the love of the truth so as to be saved. For this reason God will send upon them a deluding influence so that they will believe what is false, in order that they all may be judged who did not believe the truth, but took pleasure in wickedness.” (2 Thessalonians 2:8-12)
 
   
 
@@ -2529,4 +2528,10 @@ quicken = to endue with life
 "You do not have to live in the death of sin. God can quicken your spirit to new life:"
 
 >'If Christ is in you, though the body is dead because of sin, yet the spirit is alive because of righteousness. But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ Jesus from the dead will also give life to your mortal bodies through His Spirit who dwells in you. So then, brothers and sisters, we are under obligation, not to the flesh, to live according to the flesh—for if you are living in accord with the flesh, you are going to die; but if by the Spirit you are putting to death the deeds of the body, you will live. For all who are being led by the Spirit of God, these are sons and daughters of God.' (Romans 8:10-14)
+- God communicates to your spirit through the holy spirit
+
+(John 3:6-7) – need to be born again in the spirit to have it
+
+>'For the one who speaks in a tongue does not speak to people, but to God; for no one understands, but in his spirit he speaks mysteries.' (1 Corinthians 14:2)
+- Holy Spirit communicates directly to God from ur spirit
 
