@@ -4,94 +4,53 @@ sticker: lucide//sword
 color: var(--mk-color-red)
 ---
 # The Trinity
-For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. (Ephesians 6:12)
+>For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places. (Ephesians 6:12)
 
 Natural Kingdom = kingdom of world
+- That which u can experience w/ ur senses
 
-That which u can experience w/ ur senses
-
-  
-
-But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him; neither can he know them, because they are spiritually discerned. (I Corinthians 2:14)
+>But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him; neither can he know them, because they are spiritually discerned. (I Corinthians 2:14 KJV)
 
 U must be of a spiritual mindset to have spiritual discernment and turn away from sin/temptation
 
-  
-
 Spiritual warfare is "multidimensional,” which means it is fought in different dimensions. It is...
-
 1. A social battle between the believer and the world: John 15:18-27
-
 2. A personal battle between the flesh and the spirit: Galatians 5:16-26
-
 3. A supernatural battle between believers and evil spiritual powers: Ephesians 6:10-27
-
-  
 
 The thief (Satan) cometh (on earth) not but for to steal, and to kill, and to destroy: I am come that they might have life, and that they might have it more abundantly. (John 10:10)
 
 Satan fights to maintain control of the kingdoms of the world. He does not want them or your life to come under God's authority.
 
-  
+>If we say that we have no sin, we deceive ourselves and the truth is not in us. If we confess our sins, He is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness. (I John 1:8-9)
 
-If we say that we have no sin, we deceive ourselves and the truth is not in us. If we confess our sins, He is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness. (I John 1:8-9)
-
-  
-
-Despisest thou the riches of His goodness and forbearance and long suffering; not knowing that the goodness of God leadeth thee to repentance? (Romans 2:4)
-
-  
+>Despisest thou the riches of His goodness and forbearance and long suffering; not knowing that the goodness of God leadeth thee to repentance? (Romans 2:4)
 
 Rebuke can lead to repentance:
-
 ..If thy brother trespass against thee, rebuke him; and if he repent, forgive him. (Luke 17:3)
 
-  
-
 **Names for God**
-
 Jehovah-Rapha: "The Lord that healeth" Exodus 15:26 (jehovah = the lord)
-
 Jehovah-Nissi: "The Lord our banner" Exodus 17:8-15
-
 Jehovah-Shalom: "The Lord our peace" Judges 6:24
-
 Jehovah-Ra'ah: "The Lord my shepherd" Psalms 23:1
-
 Jehovah-Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
-
 Jehovah-Jireh: "The Lord who provides" Genesis 22:14
-
 Jehovah-Shammah: "The Lord is there" Ezekiel 48:35
-
 Elohim: Means God and is used wherever the creative power of God is implied
-
 Adonai: Means Lord or Master: Exodus 23:17; Isaiah 10:16,33
-
 El Shaddai: "The God who is sufficient for the needs of His People" Exodus 6:3
-
 Elolam: "The everlasting God" Genesis 21:33
-
-El Elyon: "Most high God who is exalted above other so called gods" Genesis 14:18,22
-
+El Elyon: "Most high God who is exalted above other so called gods" Genesis 14:18, 22
 Yahweh Jireh: "The Lord provides" Genesis 22:14 (Yahweh = God)
-
 Yahweh Nissi: "The Lord is my banner" Exodus 17:15
-
 Yahweh Shalom: "The Lord is peace" Judges 6:24
-
 Yahweh Sabbaoth: "The Lord of Hosts" I Samuel 1:3 
-
 Yahweh Maccaddeshcem: "The Lord thy Sanctifier" Exodus 31:13
-
 Yahweh Tsidkenu: "The Lord our righteousness" Jeremiah 23:6
-
 Yahweh Shammah: "The Lord is there" Ezekiel 48:35
-
 Yahweh Elohim Israel: "The Lord God of Israel" Judges 5:3 
-
 Quadosh Israel: "The Holy One Of Israel" Isaiah 1:4
-
 The Lord Of Hosts: In the Biblical record, these different names of God were used when requesting God to move in a specific way on behalf of His people. For example, the name Jehovah-Rapham meaning "the Lord that healeth," was used when seeking healing. The specific name of God which should be used in spiritual warfare is "Yahweh Sabbaoth" which is translated "the Lord of hosts" in the King James version of the Bible. When you call upon that name in warfare, the battle is the Lord's and all the hosts of Heaven come to your aid.
 
   
@@ -2531,8 +2490,9 @@ quicken = to endue with life
 - God communicates to your spirit through the holy spirit
 
 (John 3:6-7) – need to be born again in the spirit to have it
-
+#### Let Your Spirit Speak by the Holy Spirit
 >'For the one who speaks in a tongue does not speak to people, but to God; for no one understands, but in his spirit he speaks mysteries.' (1 Corinthians 14:2)
 - Holy Spirit communicates directly to God from ur spirit
 
->'Now in the same way the Spirit also helps our weakness; for we do not know what to pray for as we should, but the Spirit Himself intercedes for us with groanings too deep for words; and He who searches the hearts knows what the mind of the Spirit is, because He intercedes for the saints according to the will of God.' (Romans 8:26-27)
+>'and He who searches the hearts knows what the mind of the Spirit is, because He intercedes for the saints according to the will of God.' (Romans 8:27)
+#### Develop Fruit of Holy Spirit
