@@ -1193,86 +1193,45 @@ When Jesus was crucified for the sins of all mankind and resurrected from the de
 
 Satan will not acknowledge the claims of Jesus over the kingdoms of the world until the final conflict.
 
-  
-
 **Structure of World**
-
 Evil:
-
-“who gave Himself for our sins so that He might rescue us from this present evil age, according to the will of our God and Father,” (Galatians 1:4)
-
-  
+>“who gave Himself for our sins so that He might rescue us from this present evil age, according to the will of our God and Father,” (Galatians 1:4)
 
 Without God:
-
-“remember that you were at that time separate from Christ, excluded from the people of Israel, and strangers to the covenants of the promise, having no hope and without God in the world.” (Ephesians 2:12)
-
-  
+>“remember that you were at that time separate from Christ, excluded from the people of Israel, and strangers to the covenants of the promise, having no hope and without God in the world.” (Ephesians 2:12)
 
 Deception to ensnare believers to become part of world system:
-
-“For many deceivers have gone out into the world, those who do not acknowledge Jesus Christ as coming in the flesh. This is the deceiver and the antichrist. Watch yourselves, that you do not lose what we have accomplished, but that you may receive a full reward.” (2 John 1:7-8)
-
-  
+>“For many deceivers have gone out into the world, those who do not acknowledge Jesus Christ as coming in the flesh. This is the deceiver and the antichrist. Watch yourselves, that you do not lose what we have accomplished, but that you may receive a full reward.” (2 John 1:7-8)
 
 Judged & condemned by God:
-
-“But when we are judged, we are disciplined by the Lord so that we will not be condemned along with the world.” (1 Corinthians 11:32)
-
-  
+>“But when we are judged, we are disciplined by the Lord so that we will not be condemned along with the world.” (1 Corinthians 11:32)
 
 **Elements of the World**
-
 = elementary principles of world & lead to spiritual bondage:
-
-“So we too, when we were children, were held in bondage under the elementary principles of the world.” (Galatians 4:3)
-
-  
+>“So we too, when we were children, were held in bondage under the elementary principles of the world.” (Galatians 4:3)
 
 Includes rudiments of world:
-
 Regulations on which the world’s structure rests. Different from the principles of the Kingdom’s structure:
-
-“See to it that there is no one who takes you captive through philosophy and empty deception in accordance with human tradition, in accordance with the elementary principles of the world, rather than in accordance with Christ. If you have died with Christ to the elementary principles of the world, why, as if you were living in the world, do you submit yourself to decrees, such as,” (Colossians 2:8, 20)
-
+>“See to it that there is no one who takes you captive through philosophy and empty deception in accordance with human tradition, in accordance with the elementary principles of the world, rather than in accordance with Christ. If you have died with Christ to the elementary principles of the world, why, as if you were living in the world, do you submit yourself to decrees, such as,” (Colossians 2:8, 20)
 + philosophy of the world: Principles of knowledge that aren’t based on Christ
 
-  
-
 **Spirit of the World**
-
 Directly opposes Holy Spirit:
-
-“Now we have not received the spirit of the world, but the Spirit who is from God, so that we may know the things freely given to us by God.” (1 Corinthians 2:12)
-
-  
+>“Now we have not received the spirit of the world, but the Spirit who is from God, so that we may know the things freely given to us by God.” (1 Corinthians 2:12)
 
 **Wisdom of World**
-
-“For the wisdom of this world is foolishness in the sight of God. For it is written: “He is the one who catches the wise by their craftiness”;” (1 Corinthians 3:19)
-
-He uses the wise’s their wisdom against them to catch them
-
-  
+>“For the wisdom of this world is foolishness in the sight of God. For it is written: “He is the one who catches the wise by their craftiness”;” (1 Corinthians 3:19)
+- He uses the wise’s their wisdom against them to catch them
 
 **Course of World**
-
 Cycle/routine/way it operates:
-
-“in which you previously walked according to the course of this world, according to the prince of the power of the air, of the spirit that is now working in the sons of disobedience.” (Ephesians 2:2)
-
-  
+>“in which you previously walked according to the course of this world, according to the prince of the power of the air, of the spirit that is now working in the sons of disobedience.” (Ephesians 2:2)
 
 **Voices of World**
-
 Contrary to God’s voice:
-
-“We are destroying arguments and all arrogance raised against the knowledge of God, and we are taking every thought captive to the obedience of Christ,” (2 Corinthians 10:5)
-
-  
+>“We are destroying arguments and all arrogance raised against the knowledge of God, and we are taking every thought captive to the obedience of Christ,” (2 Corinthians 10:5)
 
 **Peace of World:**
-
 Temporary, fragile, deceptive:
 
 “Peace I leave you, My peace I give you; not as the world gives, do I give to you. Do not let your hearts be troubled, nor fearful.” (John 14:27)
@@ -2508,3 +2467,7 @@ It has a temporal nature:
 #### Recognize you are not in Bondage to it
 Ephesians 2:2-3, 13, 19; Romans 12:1-3
 
+>"'For through the grace given to me I say to everyone among you not to think more highly of himself than he ought to think; but to think so as to have sound judgment, as God has allotted to each a measure of faith.' (Romans 12:3)
+
+>'Now I say, as long as the heir is a child, he does not differ at all from a slave, although he is owner of everything, but he is under guardians and managers until the date set by the father. So we too, when we were children, were held in bondage under the elementary principles of the world. But when the fullness of the time came, God sent His Son, born of a woman, born under the Law, so that He might redeem those who were under the Law, that we might receive the adoption as sons and daughters . Because you are sons, God has sent the Spirit of His Son into our hearts, crying out, “Abba! Father!” Therefore you are no longer a slave, but a son; and if a son, then an heir through God' (Galatians 4:1-7)
+#### Guard v. it
