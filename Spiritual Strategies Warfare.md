@@ -658,25 +658,13 @@ Not Omniscient (knowing all things): Would not have killed Jesus if he knew what
 
 Not Omnipotent (all powerful): Jesus said the power of God within you is greater than the power of Satan. For those who believe in Jesus, Satan is already a defeated foe (John 12:31). He is strong only to those who yield to him. His power is limited by the power of God (Job 1:10-12) and he is only able to overcome a believer as they yield control to him.
 
-  
-
 Not omnipresent (present everywhere): he dispatches a host of demons throughout the earth to do his will and accomplish his purposes
+## Further Study
+His words (learn his strategies): Genesis 3:1, 4, 5; Job 1:7-12; Job 2:1-6; Matthew 4:1-11; Luke 4:1-13.
 
-  
+Satan is an exact opposite of the Holy Spirit. Satan is committed to draw men to himself
 
-**Further Study**
-
-His words (learn his strategies):
-
-Genesis 3:1,4,5; Job 1:7-12; Job 2:1-6; Matthew 4:1-11; Luke 4:1-13.
-
-  
-
-Satan is an exact opposite of the Holy Spirit. to Himself. Satan is committed to draw men
-
-The Spirit was sent by God to draw men away from God.
-
-  
+The Spirit was sent by God to draw men away from God. (what is this referring to?)
 
 |                     |                  |                                |
 | ------------------- | ---------------- | ------------------------------ |
@@ -2385,4 +2373,5 @@ Ex.
 - "The Bible should not be taken literally."
 - "The Bible contains many errors."
 
-I Ti
+Seducing spirits of Satan attack the mind to distort the truth of God's Word: I Timothy 4:1
+
