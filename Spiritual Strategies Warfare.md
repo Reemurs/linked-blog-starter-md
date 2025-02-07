@@ -2381,3 +2381,7 @@ Romans 7:23
 ### Blinds Minds of Unbelievers
 2 Corinthians 4:4
 ### Depression
+Causes: great loss, fear of loss, suppressed anger, low self-concept, unfulifilled expectations, negative attitude
+
+Cause: Negative attitude of others
+>'Where can we go up? Our brethren have discouraged our hearts, saying, “The people are greater and taller than we; the cities are great and fortified up to heaven; moreover we have seen the sons of the Anakim there.”’' (Deuteronomy 1:28)
