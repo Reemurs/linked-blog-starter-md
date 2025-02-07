@@ -783,34 +783,20 @@ Satan is still active in the world today and he still has power. But he has no a
 
   
 # Demons
-
-“But the Spirit explicitly says that in later times some will fall away from the faith, paying attention to deceitful spirits and teachings of demons,” (1 Timothy 4:1)
+>“But the Spirit explicitly says that in later times some will fall away from the faith, paying attention to deceitful spirits and teachings of demons,” (1 Timothy 4:1)
 
 Lose salvation? Are they a false save (seed on and soil) or will they eventually return? Don’t worry about your salvation the Holy Spirit assured you you’re saved and nothing could ever separate you from God. So, they were false converts or they may return (no idea if this is scriptural).
 
-  
-
 You should not minimize the power of demon spirits in the world today, yet you must not become so preoccupied with them that you see a demon in everything that happens and in everyone around you. You should take a simple, literal, Biblical approach to the subject of demons. Do not study secular books about such powers of evil. Your only sources of study in these areas should be the Word of God or good Christian literature.
 
-  
+>“for by Him all things were created, both in the heavens and on earth, visible and invisible, whether thrones, or dominions, or rulers, or authorities—all things have been created through Him and for Him. (Colossians 1:16)
+- Even the evil principalities & dominions:
+>“All things came into being through Him, and apart from Him not even one thing came into being that has come into being.” (John 1:3)
 
-“for by Him all things were created, both in the heavens and on earth, visible and invisible, whether thrones, or dominions, or rulers, or authorities—all things have been created through Him and for Him. (Colossians 1:16)
+>“And there was war in heaven, Michael and his angels waging war with the dragon. The dragon and his angels waged war, and they did not prevail, and there was no longer a place found for them in heaven. And the great dragon was thrown down, the serpent of old who is called the devil and Satan, who deceives the whole world; he was thrown down to the earth, and his angels were thrown down with him.” (Revelation 12:7-9)
 
-Even the evil principalities & dominions
-
-  
-
-“All things came into being through Him, and apart from Him not even one thing came into being that has come into being.” (John 1:3)
-
-  
-
-“And there was war in heaven, Michael and his angels waging war with the dragon. The dragon and his angels waged war, and they did not prevail, and there was no longer a place found for them in heaven. And the great dragon was thrown down, the serpent of old who is called the devil and Satan, who deceives the whole world; he was thrown down to the earth, and his angels were thrown down with him.” (Revelation 12:7-9)
-
-  
-
-Confusión:
-
-“For if God did not spare angels when they sinned, but cast them into hell and committed them to pits of darkness, held for judgment;” (2 Peter 2:4)
+Confusion:
+>“For if God did not spare angels when they sinned, but cast them into hell and committed them to pits of darkness, held for judgment;” (2 Peter 2:4)
 
   
 
@@ -2392,6 +2378,11 @@ Ex.
 - "There are more ways to Heaven than by Jesus."
 - "God is too good to send anyone to Hell."
 - "All God expects you to do is live a good life and do the best you can."
-	- How is this wrong? Is it beca
+	- How is this wrong? What else am I supposed to do other than my best? Is it because some Christians only stay in their own communities & never reach out for more (preaching gospel to all nations & getting out of comfort zone)
+		- Points of failure
+			- My best: work by my own standards of what is good & strength
+			- good life: what someone thinks is a good life for them does not always align with what God thinks a good life for a Christian is
 - "The Bible should not be taken literally."
 - "The Bible contains many errors."
+
+I Ti
